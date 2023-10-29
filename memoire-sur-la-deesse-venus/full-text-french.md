@@ -138,7 +138,7 @@ Les Babyloniens nommoient aussi Vénus Molis. « Il jura* par Molis : car tel es
 
 *) Damascenus in excerptis Valesianis, pag. 439.
 
-Les Babyloniens l'appelloient encore Salambo, selon Hésychius ; mais ils ne peuvent point s'être servis de ce terme, qui est grec, et qui tire son origine de [GREEK], qui signifie au propre l'agitation de la mer, et au figuré celle de l'ame. De [GREEK] viennent [GREEK]* se frapper le sein, comme dans le deuil, déplorer une perte. [GREEK] des gémissemens. [GREEK] l'agitation de l'ame. « [GREEK] une Déesse ainsi nommée, dit l'Auteur de l'Etymologicum magnum, parce qu'elle va de côté et d'autre pleurant Adonis. Anacréon employé, continue le même Auteur, le mot [GREEK] pour pleurer, déplorer, car une douleur et des gémissemens pareils agitent l'ame et la troublent. » Ainsi, Salambo signifie Vénus pleurant la mort d'Adonis.
+Les Babyloniens l'appelloient encore Salambo, selon Hésychius ; mais ils ne peuvent point s'être servis de ce terme, qui est grec, et qui tire son origine de στάλα, qui signifie au propre l'agitation de la mer, et au figuré celle de l'ame. De στάλα viennent σαλαΐζειν* se frapper le sein, comme dans le deuil, déplorer une perte. Σαλαΐς des gémissemens. Σαλάβη l'agitation de l'ame. « Σαλαμβάς une Déesse ainsi nommée, dit l'Auteur de l'Etymologicum magnum, parce qu'elle va de côté et d'autre pleurant Adonis. Anacréon employé, continue le même Auteur, le mot σαλαΐζειν pour pleurer, déplorer, car une douleur et des gémissemens pareils agitent l'ame et la troublent. » Ainsi, Salambo signifie Vénus pleurant la mort d'Adonis.
 
 *) Hésychius [GREEK].
 
