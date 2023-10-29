@@ -146,4 +146,104 @@ Déléphat étoit pareillement un nom de Vénus, selon* Selden ; mais Héyschius
 
 *) Selden de Dîs Syris. Syntagm, 2. 100. 4. p. 210.
 
+La Déesse de Syrie passoit aussi pour une Vénus ; et il est d'autant plus vraisemblable que c'en étoit une, qu'on la* regardoit comme la Nature et la premiere Cause qui de l'humidité tire les principes et les semences de toutes choses, et qui a découvert la source de tous les biens qui arrivent aux hommes. Hygin assure pareillement que* cette Déesse étoit Vénus. Il tomba du ciel dans l'Euphrate, dit-il, un œuf d'une grandeur merveilleuse. Les poissons l'ayant roulé sur le rivage, des colombes le couverent, et l'ayant fait éclorre, Vénus en sortit. Jupiter mit les poissons au nombre des astres, à la priere de la Déesse, dont il vouloit récompenser la justice et la probité. Les Syriens, ajoute Hygin, regardent par cette raison les poissons et les colombes comme des dieux, et n'en mangent jamais.
+
+*) Plutarch. in Crasso, pag. 553. F.
+
+*) Hygini Fabulæ 198. Vide Auctores Mythographos Latinos, pag. 327.
+
+Cette Déesse s'appelloit Atargatis, suivant Strabon* ; mais si l'on en croit Eratosthene dans ses [GREEK],* elle se nommoit Derceto. Elle tomba, dit-il, pendant la nuit, dans un lac près de Bambyce, (c'est la ville d'Héliopolis, selon Appien de Bello Parthico,* Ælien, de Natura Animalium, Lib. 12. cap. i. _etc._) et fut sauvée par le Grand Poisson. Les Syriens de cette contrée lui donnerent le nom de Déesse de Syrie. Ce Grand Poisson, dont parle Eratosthene, est celui qu'on dit avaler avec avidité l'eau que répand le verseau. C'est ainsi que s'exprime Théon le Scholiaste d'Aratus* ; mais on lui fait dire : [GREEK] : ce qui ne fait absolument aucun sens. Je lis avec un changement très-léger [GREEK], qui signifie _avaler avec avidité_. Cette correction paroîtra, je crois, indubitable à la savante Académie, qui arrête, par son exemple, les Lettres prêtes à fuir d'un pays où elles ont été si florissantes, et qui en est, si j'ose ainsi m'exprimer, le Jupiter Stateur. Si j'eusse eu à être jugé par des hommes ordinaires, je me serois bien gardé de mettre de la critique dans cette Dissertation ; mais mes Juges sont heureusement convaincus que malgré leurs savantes veilles, il se trouve encore dans la plupart des Auteurs une infinité de passages dont on ne peut dissiper l'obscurité qu'à l'aide du flambeau de la critique. C'est à votre exemple, Messieurs, que je me suis engagé dans ces routes ténébreuses, et si je ne m'y suis point égaré, j'en ai obligation à la lumière de vos doctes écrits.
+
+*) Strabo, lib 16. pag. 1085. A.
+
+*) Erathostenis enarrationes eorum quæ in astra sunt relata, pag. 13.
+
+*) Appianus, pag. 270. Conf. Strab. lib. 16. 1084, lin. ultimâ et Plin. lib. 5. cap. 23.
+
+*) Eratosthen loco superius laudato.
+
+*) Ad Arati Phænomena, pag. 50. col. 1. lin. ultimâ.
+
+Revenons à la Déesse de Syrie. Elle n'étoit pas Vénus elle-même, suivant une tradition rapportée par le Scholiaste d'Aratus,* mais fille de cette Déesse, et n'avoit point été sauvée par le Grand Poisson, mais par les Poissons qui en étoient nés, [GREEK]. Je rapporte ce passage en entier, afin de faire voir la nécessité de lire [GREEK] au lieu de [GREEK].
+
+*) Scholiast. Arati ad Phænomena, pag. 32. Remarquez que cette page est chiffrée 42.
+
+Le lac, où cet œuf étoit tombé, s'appelloit lac de Vénus.* Les Poissons de ce lac étoient privés, et venoient à la voix des Sacristains.
+
+*) Plin. Histor. Natural. lib. 32. cap. 2. tom 2. pag. 574.
+
+Selon Manilius,* Vénus se changea elle-même en Poisson, et s'enfuit dans l'Euphrate, afin d'échapper à la fureur de Typhon qui la poursuivoit.
+
+*) Manilius Astronomic. lib. 4. vers. 580.
+
+_In piscem sese Cytherea novavit_  _Cum Babyloniacas submersa profugit in undas_  _Anguipedem... Typhona furentem._
+
+Diodore de Sicile parle d'une autre tradition, Livre 2., §. 4, pag. 116 ; mais si je voulois épuiser ce qu'en a dit cet Historien, ainsi que ce que l'on trouve dans Lucien, je m'engagerois dans une discussion tout-à-fait étrangere à l'objet de ce Mémoire.
+
+Cette Vénus étoit connue sous différents noms. C'est la même que Cicéron appelle Astarte* et qui, suivant lui, étoit Syrienne et née à Tyr. « Les Africains, dit Hérodien,* la nommoient Uranie, et les Phéniciens Astroarché. » L'Empereur Hélagabale la maria à son Dieu Hélagabalus. D'Astarte, les Grecs faisoient Astroarché, parce qu'ils rapportoient tout à leur langue. On l'appelloit aussi Belthés, qu'Hésychius interprête _Junon_ ou _Vénus_. C'étoit par conséquent Uranie. Selden prouve* que c'étoit l'Astarte des Tyriens.
+
+*) Cicero de Naturâ Deorum, lib. 3, §. 23.
+
+*) Herodian. lib. 5. §. 15. pag. 193. Dio Cassius Hist. Roman. lib. 79, §. 12. tom. 11. pag. 1360.
+
+*) Selden de Dîs Syris. Syntagma. 2. §. 23.
+
+On lui donnoit Adonis pour époux, selon Cicéron.* Elle étoit aussi adorée à Byblos. « J'ai vu à Byblos, dit l'Auteur de la Déesse de Syrie,* un grand Temple de Vénus dans lequel on célébre les Orgies d'Adonis. J'ai pris connoissance de ces Orgies : car ils prétendent qu'Adonis a été tué dans leur pays par le sanglier ; tous les ans, ils se frappent en commémoration de ce malheur, ils se lamentent, ils célebrent leurs Orgies, et une grande tristesse couvre la surface de tout le pays. Quand on a cessé de pleurer et de se frapper, on fait à Adonis des sacrifices tels qu'on en fait à un mort. Le jour suivant, on dit qu'il vit, on expose à l'air sa statue, et l'on se rase la tête de la maniere dont le font les Egyptiens à la mort d'Apis. Toutes les femmes qui ne veulent pas se raser sont exposées en vente, pour se prostituer un seul jour. Le marché n'est ouvert qu'aux étrangers, et l'argent qu'on en retire s'applique à des sacrifices qu'on fait à Vénus. »
+
+*) Cicero de Naturâ Deorum, lib. 3. §. 23.
+
+*) Lucianus de Syriâ Deâ, §. 6. tom. 3. pag 454.
+
+Cette fête se célébroit, non-seulement à Byblos, mais encore en Assyrie et presque par-tout l'Orient, pour perpétuer, disent les Mythologues, les amours de la Déesse avec Adonis. Ces amours lui avoient fait donner les noms d'[GREEK]* et d'Adonias.* Mille Auteurs et Théocrite entr'autres, dans les Adoniazousai, parlent de cette fête, et si l'on rassembloit tous les détails épars de côté et d'autre, on pourroit en donner une description curieuse et circonstanciée. Mais je laisse à d'autres ce soin. Il me suffit de rapporter l'explication qu'en donnoient les Physiciens. Ils entendoient par Adonis* le Soleil, par Vénus l'Hémisphere supérieur de la terre, dont, suivant eux, nous n'occupons qu'une partie, et par Proserpine, l'Hémisphere inférieur. Lorsque le Soleil, en parcourant les douze signes de zodiaque, entre dans les six inférieurs, Vénus est alors censée pleurer, parce que Proserpine retient Adonis ou le Soleil auprès d'elle. Mais lorsqu'après avoir parcouru ces signes, il se rapproche de notre hémisphere, la Déesse reprend sa sérénité accoutumée. Cette physique n'est pas d'une grande exactitude ; car le Soleil n'est jamais plus près de nous qu'en hiver. Quoi qu'il en soit, une statue de la Déesse sur le mont Liban, avoit la main gauche dans son habit, la tête couverte, le visage triste, et même on croyoit voir couler des larmes de ses yeux. Cette image représentoit l'hiver.
+
+*) Orphei Argonautic. vers. 30.
+
+*) Nonnus Dionysiacor. lib. 33. vers. 25.
+
+*) Macrob. Saturnal. lib. 1. cap. 21. pag. 209.
+
+Le culte d'Adonis avoit pénétré jusqu'à Rome. Vénus y avoit un temple où elle étoit honorée avec Adonis, suivant le Rit Assyrien. Les Courtisannes de cette Capitale du monde avoient coutume de s'y trouver, et ceux qui en recherchoient les faveurs ne manquoient pas de s'y rendre, suivant le conseil que leur en donnoit Ovide :
+
+_Nec te prætereat Veneri ploratus Adonis._*
+
+*) Ovid. Artis Amatoriæ. lib. 1. vers. 75.
+
+Nous avons remarqué qu'elle étoit particuliérement honorée sur le mont Liban. Son temple passoit pour avoir été bâti par Cinyras.* Elle prenoit delà le nom de Libanitis.* Mais je ne trouve pas que Nonnus le lui ait donné, comme l'avance Dom de Monrfaucon dans son Antiquité Expliquée, mais bien celui de Libaneis,* dont ne parle point ce sçavant. C'est en ce lieu que la vient trouver* Junon pour la prier de lui prêter ce Ceste enchanteur, dont je parlerai dans la suite ; et dont elle veut faire usage pour tromper Jupiter, qui vouloit rendre Bacchus vainqueur des Indiens. On voit que Nonnus a emprunté cet Episode d'Homere ; mais cela n'est pas de mon sujet. Il me suffit d'avoir prouvé par cet Auteur, le culte qu'on rendoit à la Déesse en Phénicie. Vénus étoit seule lorsque Junon l'aborda, quoique les Graces ne la quittassent point, comme je le dirai autre part. Mais Nonnus* fait observer qu'elle les avoit envoyé cueillir des fleurs en divers pays. Eschyle remarque pareillement que la Phénicie lui étoit consacrée ; aussi appelle-t-il cette contrée* [GREEK], la terre fertile en bleds de Vénus. On nommoit encore la Déesse Assyrienne,* et  Erythréene,* à cause des honneurs qu'on lui rendoit en Assyrie et sur les bords de la Mer Rouge.
+
+*) Lucianus de Syriâ Deâ. §. 9. Tom. 3. p. 456.
+
+*) Id. adversus Indoctum. §. 3. pag. 101.
+
+*) Nonnus Dionysiacor. lib. 43. vers. 105.
+
+*) Idem. lib. 31. vers. 202.
+
+*) Idem lib. 31 vers. 205.
+
+*) Æschyl. Supplic. vers. 563.
+
+*) Nonnus Dionysiacor. lib. 31. vers. 203.
+
+*) Id. ibid. lib. 31. vers. 276.
+
+Il y avoit à Majuma, port de Gaza en Palestine, une statue de marbre de Vénus, nue, _quæ habebat aperta sua pudenda_, comme dit Marc Diacre _in vitâ Sancti Porphyrii Gazensis_. Cette statue étoit placée sur un autel de marbre. Les habitans de Majuma avoient pour elle la plus grande vénération, et principalement les femmes qui brûloient de l'encens et allumoient des lampes en son honneur. Rodolphe Hospinien avance,* je ne sais d'après quelle autorité, que cette scandaleuse Statue subsista jusqu'au temps de l'Empereur Arcadius. Baronius et Louis de la Cerda, ont copié Marc Diacre et Hospinien, le premier dans ses Annales Ecclésiastiques, tome 5 sur l'année 399, n°. 30 ; le second, _in Adversariis Sacris_ ; Cap. 20.
+
+*) Hospinianus de Origine Festorum Ethnicorum, pag. 160.
+
+Cette Statue est une preuve de l'extrême corruption des mœurs de ces temps.
+
+Il y avoit un temple de Vénus avec une Statue de la Déesse* à Jérusalem, qu'on appelloit _Ælia Capitolina_, depuis qu'Adrien l'avoit fait rebâtir. Ce temple étoit l'ouvrage de cet Empereur. Constantin le fit détruire.
+
+*) Socrat. Histor. Ecclesiast. lib. 1. cap. 17. pag. 46. Sozom. Hist. Ecclesiast. lib. 2. cap. 1. pag. 44.
+
+Nous remarquerons avant de quitter la Syrie que les superstitieux étoient dans l'usage de porter* avec eux de petites Statues des Dieux. Le Philosophe Asclépiade en avoit toujours une de la Déesse Céleste. Etant venu voit l'Empereur Julien, qui étoit pour lors à Antioche, il plaça cette petite Statue dans le Temple d'Apollon au faux-bourg de Daphné, et ayant mis devant cette Statue des cierges allumés, le feu prit à des matieres combustibles qui brûlerent le Temple.
+
+*) Ammian. Marcellinus, lib. 22. cap. 13. page. 254.
+
+Les Arméniens, ainsi que plusieurs autres peuples de l'Asie, adoroient Vénus sous le nom d'Anaïtis. Ils lui consacroient* non-seulement les esclaves des deux sexes (ce qui n'est pas étonnant, dit Strabon), mais encore les filles de la premiere distinction. Elles ne se marioient qu'après s'être long-temps prostituées auprès de la Déesse, suivant l'usage du pays, et personne ne dédaignoit de les épouser. Le temple, qu'elle avoit* sous ce nom à Zela dans le Pont, étoit célèbre par sa magnificence, la majesté des cérémonies, et les sermens qu'y prêtoient ceux qu'on chargeoit de l'administration des affaires publiques. Il y avoit autrefois en cette Ville beaucoup de personnes attachées au service de la Déesse et les Prêtres y jouissoient d'un revenu considérable. Tout le pays lui étoit consacré et soumis à l'autorité du Pontife qui étoit très-riche.
+
+*) Strab. lib. 11. pag. 805. B.
+
+*) Idem. lib. 12. pag. 838. A. B.
+
 ...
