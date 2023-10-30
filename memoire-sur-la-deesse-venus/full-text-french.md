@@ -246,4 +246,203 @@ Les Arméniens, ainsi que plusieurs autres peuples de l'Asie, adoroient Vénus s
 
 *) Idem. lib. 12. pag. 838. A. B.
 
+Strabon, qui en parle en quatre endroits de sa Géographie, la nomme seulement Anaïtis. Pausanias, qui dit qu'elle avoit en Lydie un temple magnifique, l'appelle Diane Anaïtis,* ainsi que* Plutarque, qui nous apprend que Diane étoit honorée sous ce nom à Ecbatanes. Mais Clément d'Alexandrie* nous instruit que Vénus Anaïtis étoit adorée à Suses et à Ecbatanes ; car les Critiques ont très-bien vu qu'il falloit lire en cet endroit : [GREEK], au lieu de [GREEK].
+
+*) Pausanias Laconic. sive. lib. 3. cap. 16. pag. 249.
+
+*) Plutarchus in Artoxerxe, pag. 1025. C.
+
+*) Clemens Alexandrin. in Protreptico. p. 57. lin. 8.
+
+Les Anciens sont rarement d'accord, lorsqu'ils donnent des noms grecs à des divinités étrangères ; mais ici toutes les circonstances du culte d'Anaïtis, nous mènent à croire que c'est la même Déesse que Mylitta chez les Assyriens, Alitta chez les Arabes, et Mitra chez les Perses. Or on ne peut douter d'après le témoignage unanime des Anciens que Vénus Uranie ne fut adorée sous ces noms.
+
+Vénus étoit connue à Comanes* dans le Pont, et l'on y célébroit sa fête avec beaucoup de magnificence. On y voyoit un grand nombre de courtisannes de même qu'à Corinthe. Le Grand Prêtre* et la Grande Prêtresse demeuroient dans l'enceinte du lieu sacré ; la chair de porc y étoit interdite, et même on ne laissoit point entrer de pourceaux dans la Ville. Cette défense, particulière aux Orientaux, caractérise Vénus Uranie.
+
+*) Strabo. lib. 12. pag. 837. C.
+
+*) Id. ibid. pag. 861. A.
+
+Les Arabes adoroient Vénus, comme nous l'avons vu plus haut, sous le nom d'Alitta ou d'Alilat. Ils rendoient aussi leurs hommages à une pierre qu'ils appelloient Tête de Vénus. Euthymius (_in Panopliâ_) dit, qu'en examinant cette pierre avec attention, on appercevoit encore des traits qui indiquoient une tête. Le Cathéchisme des Sarrasins anathématise cette pierre, qu'il nomme figure de Vénus. Vincent de Beauvais* nous apprend, d'après un Auteur Chrétien, qui a écrit en Arabe contre les Mahométans, que Mahomet laissa subsister une coutume qu'il trouva établie à la Mecque en l'honneur de Vénus. Cet usage consistoit à jetter de petites pierres derriere soi entre les jambes, c'est-à-dire, comme s'exprime cet Auteur, _sub genitalibus membris, eo quod Venus maxime partibus illis dominetur_. Breidenbach cite aussi la même chose qu'il a puisée dans Pierre Alphonse. _Voyez_ la note d'Ouzelius sur Minucius Felix, page 18.
+
+*) Vincentius Bellovacensis, lib. 4. Speculi Historialis.
+
+Les Sarrasins adorerent jusqu'au temps d'Héraclius Vénus sous le nom de Chabar, qui signifie la Grande en leur langue. _Voyez_ Euthymius _in Panoplia_ et le Catéchisme des Sarrasins.
+
+Les Perses tenoient le culte de Vénus Céleste des Assyriens et des Arabes, comme nous l'avons remarqué plus haut d'après Hérodote,* et l'adoroient sous le nom de Mitra. Elle avoit un temple dans l'Elymaïde, qui fut pillé par Antiochus, selon Appien.* Polybe racontoit,* dans un livre qui n'est point venu jusqu'à nous, que ce temple étoit celui de Diane chez les Perses. On voit le peu d'accord des Grecs, lorsqu'ils parlent des divinités des autres nations. Polybe ajoutoit qu'Antiochus tomba en phthisie pour avoir voulu piller ce temple. Mais Joseph, de qui nous tenons cette particularité, nous dit que la simple volonté de piller ce temple ne méritoit point d'être punie : que si cette volonté paroissoit à Polybe la cause de la mort de ce Prince, il étoit beaucoup plus vraisemblable de croire qu'il étoit mort pour avoir pillé le temple de Jérusalem. Mais, ajoute-t-il, je ne veux point disputer là-dessus avec ceux qui pensent devoir préférer le sentiment du citoyen de Mégalopolis.
+
+*) Herodot. lib. 1. §. 131.
+
+*) Appianus de Bellis Syriacis, pag. 212.
+
+*) Joseph. Antiquit. Judaic. lib. 12. cap. 9. §. 1. tom. 1. pag. 621.
+
+Le culte de Vénus avoit pénétré jusque dans l'Isle de Taprobane, aujourd'hui Ceylan. On l'appelloit aussi l'isle de Vénus Colias,* parce que, dit Eustathe dans son Commentaire sur Denys le Periegete, ses habitans étoient efféminés. Cela rend raison du nom de Vénus donné à cette isle, mais n'explique pas pourquoi elle avoit été surnomée Colias.
+
+*) Dionysii Periegesis, vers. 592.
+
+Si nous passons delà en Egypte, nous y trouverons le culte de la Déesse établi. Les différens Nomes, villes et ports qui prenoient son nom, et dont il seroit trop long de faire l'énumération, font assez voir que cette Déesse y étoit en grande vénération. Les Tentyrites* lui avoient élevé un temple dans leur ville. Elle étoit adorée à Chusæ,* bourgade du Nome d'Hermopolis, dont les habitans honoroient les vaches, parce qu'ils étoient persuadés que cet animal appartenoit à la Déesse, à cause de l'ardeur qu'il sent pour les plaisirs. _Alexander ab Alexandro_ la nomme Vénus Cornuta,* sans aucune autorité, et quoi-qu'Elien assure que c'étoit Uranie. Son culte étoit établi à Atarbechis,* dans l'isle Prosopitis. Hérodote ne dit pas positivement que ce fut Uranie ; mais l'on sait que les Egyptiens ne connurent la Vénus des Grecs, que lorsque ces derniers s'établirent parmi eux. Elle s'appelloit Athor dans la langue du pays. L'auteur de l'Etymologicum Magnum, dit au mot Athur : « Athur est un mois. Les Egyptiens appellent Venus Athor, et ont aussi donné le même nom au troisieme mois de l'année » : [GREEK]. Ainsi, la ville d'Atarbechis, où elle étoit principalement honorée, n'étoit autre que la ville de Vénus, puisqu'Atur ou Athor, comme l'écrit Orion le Thébain dans l'Etymologicum Magnum, étoit Vénus, et que Baki signifie encore aujourd'hui chez les Coptes une ville. C'étoit donc la même ville que Strabon* appelle Aphroditès Polis, parce qu'il interprétoit son nom en grec.
+
+*) Strabo, lib. 17. pag. 1169. C.
+
+*) Ælian, de Naturâ Animal. lib. 10. cap. 27. page. 575.
+
+*) Alexander ab Alexandro Genialium Dieruns lib. 3. tom. 1. pag. 696.
+
+*) Herodot. lib. 2. §. 41.
+
+*) Strabo, lib. 17. pag. 1154. C.
+
+Je crois que cette Déesse est la même que celle qui étoit connue en Egypte, selon Hésychius, sous le nom de [GREEK], ténébreuse. On fait qu'Athor signifie encore à présent chez les Coptes la nuit. Cela me paroît tenir au Systême Théologique du pays, où les ténebres* étoient le principe de tout. On fait que le prétendu Orphée, qui a beaucoup puisé dans les Livres sacrés des Egyptiens, dit dans l'Hymne de la Nuit* : « Je te chanterai, ô Nuit, mere des Dieux et des hommes ; Nuit, principe de tout, et que nous appellerons Vénus. » Et dans l'Hymne à Vénus,* « tout vient de vous, lui dit-il, vous avez uni le monde, vous exercez un empire souverain sur les trois Parques ; vous donnez la vie à tout ce qui est dans le Ciel, sur la terre, dans la mer et dans l'abyme. »
+
+*) Damascius de Principiis in Anecdotis Wolfii, tom. 3. pag. 260.
+
+*) Orphei Hymn. 2. vers. 1.
+
+*) Id. Hymn. 54. vers. 4.
+
+M. Jablonski* prétend qu'elle est la même qu'Hécate Scotia, dont on voyoit le temple près de Memphis* ; comme si Hécate, qui n'est autre que Proserpine, n'avoit pû elle-même être surnommée Scotia. M. Jablonski pouvoit tout au plus déduire cette identité des principes qu'il a posés, et qui ne me semblent pas aussi certains qu'ils le lui paroissent.
+
+*) Panth. Ægyptiorum, lib. 1. cap. 1. §. 13.
+
+Nephthys, Déesse Egyptienne, se rapportoit aussi, selon quelques-uns* à Vénus. Je ne m'y arrête point, afin de ne point entrer dans la mythologie de ce pays qui m'écarteroit trop du plan tracé par l'Académie.
+
+Je finis ce que j'ai à dire des Egyptiens par remarquer qu'ils appelloient la terre Vénus,* et le soleil l'Amour. Car, disoient-ils, de même que la terre ne peut rien sans la douce chaleur du soleil, de même Vénus ne peut rien sans l'Amour. Ce sentiment tient au systême des Orientaux sur la formation des êtres, dont nous avons déjà parlé et dont nous parlerons encore.
+
+Les Egyptiens représentoient Mars et Vénus* par deux éperviers ; parce que la femelle de l'épervier vient toujours à la voix du mâle, quand même elle auroit eu trente fois sa compagnie.
+
+*) Diodor. Sicul. lib. 1. §. 96. pag. 108.
+
+*) Plutarch. de Iside et Osiride. pag. 31. ex edit Cantabrigiensi. 1744. in-8°.
+
+*) Id. in Amatorio, pag. 764. D.
+
+*) Horapollo. lib. 1. cap. 8. pag. 12.
+
+Ils les peignoient aussi sous l'emblême de deux Corneilles, l'une mâle, l'autre femelle, parce que cet oiseau pond deux œufs, d'où naissent un mâle et une femelle, qui ne se quittent jamais.
+
+Indépendemment de ces Vénus particulieres aux Egyptiens et à la plus grande partie de l'Asie, on adoroit encore près de Momemphis la Vénus des Grecs sous le nom de Vénus dorée.* Delà venoit sans doute le nom de Plaine dorée qu'on donnoit à la plaine voisine de cette Ville. M. Danville, se fiant à une édition vicieuse de Diodore de Sicile, a placé cette plaine près de Memphis. Une petite isle, dans le voisinage de cette Ville, dont le nom moderne est Gezirat-Iddahab ou isle d'Or, l'a confirmé dans son erreur.* Mais Eusébe, en rapportant le passage entier de Diodore dans sa Préparation Évangélique,* met la ville de Momemphis et non point celle de Memphis ; on sait d'ailleurs par, Strabon,* que les habitans de Momemphis avoient une grande vénération pour Vénus. Cette Plaine, n'étant pas loin d'Alexandrie, devoit être connue d'Histiæa,* célèbre grammairienne d'Alexandrie, qui a écrit quelque chose sur l'Iliade d'Homere. Aussi en parle-t-elle au rapport d'Eustathe.*
+
+*) Diodor. Sicul. lib. 1. §. 97. pag. 109 et 110.
+
+*) Memoires sur l'Egypte ancienne et moderne, pag. 131 et 132.
+
+*) Eusebii Præparatio Evangelica, lib. 10. §. 8. pag. 481.
+
+*) Strab. lib. 17. pag. 1155. B.
+
+*) Strab. lib. 14. pag. 894. C. Eustath. ad Homeri Iliad. lib. 2. pag. 280. lin. 19.
+
+*) Eustath. ad Homeri Iliad. lib. 3. pag. 384. lin. 20.
+
+Il y avoit à Memphis dans le temple* de Protée, une Chapelle dédiée à Vénus surnommée l'Étrangere. Hérodote conjecturoit que cette Vénus étoit Hélene, fille de Tyndare, non-seulement parce qu'il avoit oui dire qu'Hélene avoit autrefois demeuré à la Cour de Protée, mais encore parce que cette Chapelle étoit la seule qui fut consacrée à cette Déesse sous ce nom. Strabon avoit en vue la même Chapelle, lorsqu'il dit qu'à Memphis* il y en avoit une de Vénus, qu'on regardoit comme une Déesse grecque, et que quelques-uns croyoient dédiée à la Lune.
+
+C'est de cette Vénus qu'Horace* a dit ;
+
+_O, quæ beatam Diva tenes Cyprum, et_  
+_Memphin carentem Sithoniâ nive,_  
+_Regina..._
+
+*) Herodot. lib. 2. §. 112.
+
+*) Strabo, lib. 17. pag. 1161. A.
+
+*) Horat. Carm. lib. 3. Od. 26. vers. 9.
+
+On sera peut-être surpris de voir une Chapelle élevée à Hélene sous le nom de Vénus ; mais cette surprise cessera en réfléchissant sur le peu de délicatesse des Anciens là-dessus. Qui est-ce qui ne se rappelle pas d'avoir lu dans Plutarque* que Vénus Bélestica avoit un Temple à Alexandrie. Bélestia étoit une esclave d'une grande beauté, aimée d'un Roi d'Egypte, qui lui fit élever des Autels sous ce nom. Il y avoit au Promontoire Zéphyrium entre Canope et Alexandrie une Chapelle de Vénus Arsinoë* dont je parlerai plus amplement à l'Article de Vénus qui préside à la Mer. Je rapporterai, dans la suite de cet ouvrage, plusieurs exemples pareils. Vénus avoit encore un Temple à Naucrate, dont je dirai un mot à l'occasion de l'empire qu'elle exerçoit sur la Mer.
+
+*) Plutarch. in Erotico. pag. 753. E et F.
+
+*) Strabo, lib. 17. pag. 1052. B.
+
+Après avoir parcouru l'Egypte, revenons en Asie. Tacite* nous apprend qu'il y avoit à Aphrodisias en Carie un Temple de Vénus, qui jouissoit des mêmes priviléges que celui de Diane à Ephese. Il en étoit de même d'un Temple de cette Déesse* dans la Ville des Plaraséens en Carie, qui ne m'est connue que par une Inscription rapportée par Chishull.
+
+*) Tacit. Annal. lib. 3. §. 62.
+
+*) Antiquitates Asiaticæ Chishull. pag. 153. §. 10, 11 et 12.
+
+L'Isle de Cypre ne faisant point partie de la Grece, j'aurois pu me contenter de dire en deux mots avec Himérius* que Vénus Uranie y étoit adorée. Mais comme à l'exception d'Amathunte, elle n'étoit habitée que par des Grecs, je croirois m'écarter des intentions de l'Académie, en n'en parlant point d'une maniere particuliere.*
+
+*) Himerius. Vide Photii Bibliothec. Cod. 245. pag. 1132.
+
+*) Id. ibid.
+
+Comment en effet passer sous silence une Isle aussi renommée par le culte de cette Déesse, que Délos l'étoit par celui d'Apollon ? Les Poëtes, dit le même Himérius, attribuent Cypre à Vénus, de même que Délos à Apollon. On connoît ce vers d'Horace ; _Sic te diva potens Cypri_, et ceux-ci d'Homere* :
+
+[GREEK].
+
+*) Homeri Hymn. secund. in Venerem, initio.
+
+« Je chanterai la respectable, la belle Vénus, qui a eu en partage l'Isle de Cypre entiere. » Les Poëtes l'appelloient _Cyprigenia_, parce qu'elle étoit née dans l'Isle de Cypre ; _Cypria Venus_* ou _Cypris_,* à cause du culte qu'on lui rendoit en cette Isle. Mais Phurnutus* prétend que cette Isle lui fut peut-être consacrée, parce que son nom convient en quelque sorte à la conception, à la gestation, [GREEK], ainsi qu'il faut lire au lieu de [GREEK] qui est une faute manifeste. Le traducteur latin paroît avoir eu en vue cette correction, qui est appuyée par l'Auteur de l'_Etymologicum Magnum_* qui dit au mot [GREEK], que [GREEK] est une syncope pour [GREEK], qui fait concevoir. Cela est encore confirmé par Eustathe,* où on lit : [GREEK].
+
+*) Arnobius adversus Gentes. lib. 5. pag. 169.
+
+*) Nonnus Dionysiacorum. lib. 32. vers 212.
+
+*) Phurnutus de Naturâ Deorum, cap. 24. p. 198.
+
+*) Pag. 546. lin. 31.
+
+*) Eustath. Commentar. in Homeri Odyss. Θ, pag. 1600. lin. 63.
+
+Le Temple de Paphos étoit très-ancien. On le supposoit bâti par Aërias* ; mais d'autres prétendoient qu'il l'avoit été par Cinyras,* et que la Déesse conçue au milieu des flots étoit abordée en ce lieu. On voit que Tacite, qui m'a fourni ces passages, confond, ainsi que la plupart des Poëtes, la Vénus des Assyriens avec celle des Grecs : car on ne peut douter que la Vénus de Paphos ne fût* celle des Assyriens, c'est-à-dire, Uranie. Pausanias et d'autres Auteurs le disent expressément.
+
+*) Tacit. Annal. lib. 3. §. 62.
+
+*) Id. Historiar. lib. 2. §. 3.
+
+*) Pausanias Attic. sive. lib. 1. cap. 14. pag. 36.
+
+Soit que dans ces siécles reculés la Sculpture fut inconnue, soit qu'on n'osât point encore donner aux Dieux la figure de l'homme, soit en un mot que cela fut fondé sur des principes philosophiques, comme cela me paroit vraisemblable, il est certain que les Dieux, dans ces premiers temps, étoient représentés par des pierres rondes, triangulaires, quadrangulaires _etc._ c'étoient autant d'emblêmes de la Divinité. « Les Péoniens, dit Maxime de Tyr,* adorent le Soleil sous la figure d'un disque placé au haut d'une longue perche. Je ne sçais pas quel Dieu vénérent les Arabes ; c'est un cube de pierre. Vénus est honorée à Paphos sous une figure qu'on pourroit assimiler à une pyramide blanche. » On voit cette Déesse représentée sons cette forme sur une monnoie des Chalcidiens, dans le Recueil des Médailles de Peuples et de Villes par M. Pellerin, Tom. 2. Planch. 80, n°. 76. Le simulacre de la Déesse à Paphos, dit Tacite,* n'a pas la figure humaine, mais celle d'un cone.
+
+*) Maximi Tyrii Dissertat. 8. (vulgo 38) §. 8. pag. 87.
+
+*) Tacit. Historiatum, lib. 2. §. 3.
+
+Chacun offroit* en cetre Ville des victimes selon son goût ; mais l'on choisissoit les mâles, et l'on consultoit avec confiance les entrailles des Boucs. Il étoit défendu de répandre du sang sur son Autel, et l'on n'y allumoit qu'un feu pur. Tacite, de qui j'emprunte ce récit, ajoute qu'il ne pleuvoit jamais sur cet Autel, quoiqu'il fut à découvert. Pline* fait aussi la même remarque. Mais, dit le judicieux Polybe, à propos de pareilles fables, qu'on débitoit sur les Statues de Diane Mindyas* à Bargylies, et de Vesta à Iassus, « Je regarde comme des puérilités, nonseulement tout ce qui n'est pas dans l'ordre des possibles, mais encore tout ce qui n'est point dans celui des vraisemblables. »
+
+*) Id. ibid.
+
+*) Plin. Histor. Natural. lib. 2. cap. 96. tom. 1. pag. 116.
+
+*) Polyb. Excerpta è lib. 16. Historiarum. §. 11.
+
+*) C'est ainsi qu'il faut lire dans Polybe d'après Strabon, livre 14. pag. 972. B. et non Cyndias comme lisoit Casaubon dans Strabon d'après Polybe. On sçait que la ville de Minde avoit donné son nom à cette Diane.
+
+Il faut entendre, par ce feu pur dont parle Tacite, l'encens qu'on brûloit sur cet Autel, comme nous l'apprend Servius sur le vers 380 du second Livre des Géorgiques. On offroit aussi des fleurs sur le même Autel, suivant ces vers de Virgile :
+
+_Ipsa Paphum sublimis abit, sedesque revisit_  _Læta suas : ubi templum illi centum que Sabæo_  _Ture calent aræ, sertisque recentibus halant._  Æneid. 1. 415.
+
+Le récit de Tacite paroît se contredire ; je crois cependant qu'il n'est pas difficile de concilier cet Auteur avec lui-même. La Déesse avoit plusieurs Autels à Paphos. On immoloit sans doute des victimes sur les unes, et l'on ne brûloit que de l'encens sur les autres. Je penserois même que l'usage d'immoler des victimes sur quelques Autels de la Déesse ne s'introduisit à Paphos, que lorsque les Grecs se furent rendus maîtres de l'Isle. Car on sait par les Extraits de Théopompe, faits par Photius, que des Grecs* qui avoient accompagné Agamemnon, s'emparerent de l'Isle de Cypre, et obligerent Cinyras et les siens de se retirer à Amathunte, où l'on voyoit encore leur postérité. Pausanias s'accorde avec Théopompe. Les Arcadiens,* dit il, ayant été accueillis d'une violente tempête en revenant de la guerre de Troie, furent portés par les vents en Cypre. Agapénor, leur chef, fonda une colonie à Paphos, et y éleva un Temple en l'honneur de Vénus. Quoi-qu'il en soit, il y avoit en ce Temple un Oracle que Titus* consulta lorsqu'il passa à Paphos, en allant faire compliment à Galba sur son élévation à l'Empire.
+
+*) Photii Bibliotheca, cod. 176. pag. 389. lin. 50.
+
+*) Pausanias Arcadic. sive lib. 8. cap. 5. p. 607.
+
+*) Suetonius in Tito, cap. 5.
+
+J'ai remarqué que quelques-uns regardoient le Roi Cinyras comme fondateur de ce Temple. Ses descendans, que l'on appelloit Cinyrades, en furent les Prêtres, comme on le voit dans Hésychius au mot [GREEK], et dans le Scholiaste* de Pindare. Thamyras ayant ensuite apporté de Cilicie la Science des Haruspices, sa postérité présida aussi aux cérémonies religieuses ; mais elle perdit dans la suite ce privilége, qui passa tout entier à la famille royale, de crainte que celle-ci ne fut éclipsée par une race étrangere. On ne consulte plus actuellement, dit Tacite,* que le Prêtre de la famille de Cinyras.
+
+*) Scholiastes Pindari ad Pyth. Od. 2. vers. 2 pag. 183. col. 2. lin. 10.
+
+*) Tacit. Histor. lib. 2. §. 3.
+
+Le Sacerdoce de Vénus Paphia étoit très-considérable par le revenu qui y étoit attaché, et par le crédit dont jouissoit celui qui en étoit revêtu. Lorsque Caton fut envoyé dans l'Isle de Cypre, il fit dire à Ptolémée* que s'il se retiroit sans combattre, il ne manqueroit ni d'argent ni d'honneurs, et que le Peuple Romain lui donneroit la Grande Prêtrise de Vénus Paphia.
+
+*) Plutarchus in Catone minore pag. 776. B.
+
+L'ancienne Paphos éloignée* de dix stades de la mer, avoit encore un temple de Vénus Paphia. Il se rendoit tous les ans en cette Ville, de tous les autres lieux de l'Isle, une grande multitude de monde, hommes et femmes, qui alloient ensuite en grande pompe à la nouvelle Paphos, qui en étoit éloignée de soixante stades.
+
+*) Strabo lib. 14. pag. 1002. B. C.
+
+Vénus Paphia s'appelloit aussi [GREEK], si l'on en croit Hésychius ; mais Jean Frédéric Gronovius corrige [GREEK]. C'est peut-être une faute d'impression. On trouve aussi _Paphie_ dans l'Épitaphe d'Homonœa,* dont je vais transcrire une partie :
+
+_Tu qui securâ procedis mente, parumper_  
+_Siste gradum, quæso, verbaque pauca lege._  
+_Illa ego, quæ claris fueram prælata puellis,_  
+_Hoc Homonoea brevi condita sum tumulo._  
+_Cui formam Paphie, Charites tribuêre decorem,_  
+_Quam Pallas cunctis artibus erudiit, etc._  
+
+*) Anthologia Latina, tom. 2. l. 4. Epigram. 142.
+
 ...
