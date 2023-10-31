@@ -445,4 +445,167 @@ _Quam Pallas cunctis artibus erudiit, etc._
 
 *) Anthologia Latina, tom. 2. l. 4. Epigram. 142.
 
+Le savant et ingénieux Pere Vavassor ne pensoit pas que cette Épitaphe fût d'une grande antiquité parce qu'il croyoit _Paphie_ inusité chez les Anciens. Voyez son Traité _De Vi et Usu quorundam Verborum_. pag. 30. Il ne se rappelloit pas sans doute qu'Homonœa étoit femme d'Atimetus affranchi de Tibere, et par conséquent que cette Épitaphe avoir été faite sous le regne de cet Empereur ou peu après ; il ne se rappelloit pas non plus que ce même mot se rencontre dans une Épigramme* qu'Ausone a imitée du grec d'Asclepiades ; imitation que les Commentateurs n'ont pu remarquer, parceque cette Épigramme n'existoit encore que dans les Manuscrits.
+
+*) Ausonii opera, Epigr. 94. pag. 61.
+
+_Punica turgentes redimibat zona papillas_  _Hermiones : zonæ textum elegeion erat._  _Qui legis hunc titulum, Paphie tibi mandat,_  _ames me ;_  _Exemploque tuo neminem amare vetes._
+
+Comme l'original grec ne se trouve que dans des ouvrages où il n'y a pas d'apparence qu'on aille le chercher, et dans les Analectes des Poëtes grecs qui n'ont point encore vu le jour, je pense qu'on ne sera pas fâché de le trouver ici.
+
+[GREEK]* [GREEK],
+
+[GREEK].
+
+*) Analecta Veterum Poetar. Græcor. Tom. 1. pag. 214. 16.
+
+« Je jouois un jour avec la persuasive Hermione. Elle étoit parée d'une ceinture de fleurs en broderie, sur laquelle on lisoit en lettres d'or ces mots : aimez-moi, et ne vous attristez pas si quelqu'autre me posséde. »
+
+Phurnutus prétend* que Vénus a été nommée _Paphia_ de [GREEK], je trompe. Mais il faut lire avec Eustathe [GREEK], dont se servoient les Anciens pour signifier tromper* [GREEK] n'est pas grec. On pourroit lire [GREEK] en ce passage de Cornutus, et cette leçon se trouve dans quelques manuscrits ; mais l'autre est celle d'Eustathe.
+
+*) Phurnutus de Naturâ Deorum, cap. 24. pag. 198.
+
+*) Eustath. commentar. in Homeri Odyss. Θ. pag. 1600. lin. 62.
+
+Passons maintenant à Amathunte, autre Ville de la même Isle, où Venus n'étoit pas moins honorée qu'à Paphos, et qui lui donnoit le nom d'_Amathusias_* et d'_Amathusia_.* Tacite* donne à penser qu'Amathus, fils du Roi Aërias, est le fondateur du Temple de Vénus. La Statue* de la Déesse avoit une barbe, le corps et l'habit d'une femme, avec un sceptre et les parties sexuelles de l'homme. On l'appelloit [GREEK]. Les hommes lui sacrifioient en habit de femme, et les femmes en habit d'homme.
+
+*) Symmach. lib. 1. Epist. 8.
+
+*) Catullus ad Manlium, vers. 51. Ovid. Amor. lib. 3. eleg. 15. vers. 15.
+
+*) Tacit. Annal. lib. 3. §. 62.
+
+*) Servius ad Virgilii Æneid. lib. 2. vers. 632.
+
+Macrobe fait la même observation* : _Signum etiam ejus est Cypri barbatum corpore sed veste muliebri cum sceptro ac staturâ virili, et putant eandem marem ac feminam esse_. Le texte est altéré et mal ponctué. Il faut lire avec Servius : _Signum etiam ejus est Cypri barbatum, corpore et veste muliebri, cum sceptro et naturâ virili_. Les deux sexes de cette Vénus expliquent le _duplex Amathusia_* de Catulle que les Commentateurs* n'ont point entendu. On voit aussi pourquoi Hésychius l'appelle [GREEK]. Les Anciens étoient fort incertains si elle étoit mâle ou femelle. Lævinus dit quelque part, suivant Macrobe,* _Venerem igitur almum adorare, sive femina, sive mas est_. C'est selon le même Auteur, par la même raison que Virgile a dit : _ducente Deo_, en parlant de Vénus, au lieu de _Deâ_ ; mais il est permis d'en douter. On sait que Virgile suit les Grecs pas à pas, et que ceux-ci faisoient le mot [GREEK] des deux genres. Tout le monde connoît le commencement de la Harangue de Démosthene _pro Coronâ_. [GREEK].
+
+*) Macrob. Saturnal. lib. 3. cap. 8. pag. 283.
+
+*) Catull. 67, 51, ex edit. Vulpi.
+
+*) Un des Commissaires nommés pour examiner mon mémoire a observé qu'il falloit en excepter Vossius.
+
+*) Macrob. Saturnal. lib. 3. cap. 8. pag. 283.
+
+Les passages ci-dessus rapportés, prouvent bien l'existence de cette Statue dans l'Isle de Cypre, mais ne disent pas qu'elle fut à Amathunte. Hesychius leve la difficulté. Pæon, dit-il au mot [GREEK], qui a écrit l'histoire d'Amathunte, assure que la Déesse étoit représentée comme un homme. On voit que je suis la correction de Kuster, qui lisoit d'après Plutarque* [GREEK] en la place de [GREEK] qui ne fait aucun sens. Kuster nous apprend dans sa note, que Meursius lisoit en cet endroit [GREEK] ; mais cette correction s'éloigne trop du texte.
+
+*) Plutarch. in Theseo, pag. 9. A.
+
+Les Romains avoient aussi une Vénus avec une barbe, dont je parlerai, lorsque j'en serai à la Capitale du Monde.
+
+Il y avoit encore à Amathunte un* Temple de Vénus et Adonis, où l'on conservoit le collier fait par Vulcain, que Vénus donna, suivant la Fable, à Harmonie,* fille de Cadmus,* et dont Polynice fit dans la suite présent à Eriphyle, femme d'Amphiaraiis, afin de l'engager à persuader son mari d'aller à la guerre contre Thebes. On sait les suites funestes de ce présent, qu'on peut lire dans Diodore de Sicile et ailleurs, et qui ne sont pas de mon sujet.
+
+*) Pausanias Bæotic. sive lib. 9. cap. 41. 796.
+
+Il y avoit aussi près d'Amathunte* un bois que l'on appelloit le bois de Vénus-Ariadne, parce qu'on y voyoit le tombeau de cette Princesse, qui étoit morte en travail dans l'isle de Cypre, suivant Pæon l'historien d'Amathunte. On célébroit sa fête le second jour du mois Gorpiæus, qui répond à-peu-près à notre mois de septembre. Un jeune homme, couché sur un lit, imitoit alors les paroles et les actions d'une femme en travail.
+
+Cinyras* avoit institué des Mysteres en l'honneur de Vénus, et l'on présentoit aux Initiés du sel, un Phalle, symboles de sa naissance, et les Initiés lui offroient une piece d'argent, comme à une courtisanne. On s'apperçoit, sans que j'en avertisse, que je lis avec Potter [GREEK]... Le sel faisoit allusion à la mer où elle avoit été conçue. Le reste n'a pas besoin d'explication. Ces Mysteres se célébroient en Cypre, comme nous l'apprend Arnobe* : _nec non Cypriæ Veneris abstrusa illa Initia prætereamus, quorum conditor indicatur Cinyras rex fuisse : in quibus sumentes ea, certas stipes inferunt, ut meretrici, et referunt phallos, propitii numinis signa_. Le sacrifice qu'on lui offroit s'appelloit* [GREEK]. Ce mot, qui vient de [GREEK] _fruges_, et qui signifioit probablement dans son origine les prémices des fruits qu'on offroit aux Dieux, se prit dans la suite pour un sacrifice en général, ainsi que le mot [GREEK], comme on le voit dans la Version des Septante.
+
+*) Diodor. Sicul. lib. 4. §. 65. pag. 309. Nonnus Dionysiacor. lib. 5. vers. 135. etc.
+
+*) Selon Nonnus et d'autres Mythologues, elle étoit fille de Mars et de Vénus, et femme de Cadmus. J'en parlerai au sujet des enfans de Vénus.
+
+*) Plutarch. in Theseo. pag. 9. C.
+
+*) Clemens Alexandrinus in Protreptico, pag. 13. lin. 17. Arnob. adversus Gentes. lib. 5. pag. 169.
+
+Je finis ce que j'ai à dire sur Amathunte par observer que les premieres Courtisannes parurent en cette ville, si l'on peut ajouter foi au récit d'Ovide. Les Propœtides,* dit-il, ayant osé nier la divinité de Vénus, elles se prostituerent les premieres, à ce que l'on assure, par un effet de sa colere. La prostitution étoit donc alors une honte et non pas un acte religieux. Cette réflexion confirme ce que j'ai dit plus haut, que le culte d'Uranie étoit pur dans son origine.
+
+*) Arnob. adversus Gentes, lib. 5. pag. 169.
+
+*) Hesychius Voc. [GREEK].
+
+*) Ovid. Metamorphos. lib. 10. vets. 238.
+ Argos en Cypre n'étoit remarquable que par le temple d'Apollon Erythius, où Vénus trouva le corps d'Adonis* après sa mort. Elle l'enleva, après avoir fait part de son amour à Apollon. Ce Dieu en eut pitié. Il la conduisit sur le rocher Leucas, d'où il lui conseilla de se précipiter. La Déesse le crut, se précipita du haut du rocher et se trouva guérie.
+
+Golgos ou Golgi : car ce mot s'écrit des deux manieres, ville de Cypre, renommée par le culte de Vénus. Pausanias* paroît dire que cette Déesse y étoit adorée avant qu'elle le fut à Paphos ; mais cet Auteur ne veut parler que du temple qu'éleva en cette derniere ville Agapénor, chef de la Colonie Grecque, qui s'y établit au retour de la guerre de Troie. Il est hors de doute que ce temple étoit postérieur à celui de Golgos. Meursius* s'y est trompé. Vénus tiroit de cette ville* le surnom de Golgia.
+
+*) Ptolem. Hephæst. lib. 7. vid. Phot. Bibliothec. Cod. 190. pag. 492. lin. 8. etc.
+
+*) Pausanias Arcadic. sive. lib 8. cap. 5. pag. 607.
+
+*) Meursii Cypr. lib. 1. cap. 11.
+
+*) Stephan. Byzantin. Noc. [GREEK].
+
+Myricæ étoit un lieu de l'isle de Cypre* consacré à Vénus. Peut-être avoit-il donné occasion au surnom de Myrica qu'on lui donnoit au rapport de Servius ; mais je crois le passage de ce Grammairien altéré, comme je le ferai voir en parlant de Venus Murcia.
+
+*) Hesychius voc. [GREEK].
+
+Il y avoit à Salamis un temple de Venus Prospiciens, parce qu'Anaxarete avoit été changée en pierre par la Déesse dans le temps qu'elle regardoit par la fenêtre. Cette histoire seroit trop longue à rapporter. On peut consulter le quatorzieme Livre des Métamorphoses d'Ovide depuis le vers 698 jusqu'au 760. Les Grecs l'appelloient en leur langue [GREEK]. Plutarque en parle in Amatorio, pag. 766. D.
+
+On voyoit à Soles un temple de Vénus, dont il n'est fait mention que dans Strabon.*
+
+*) Strabo. lib. 14. pag. 1002. D.
+
+Près de Carpasie* étoit l'Olympe, promontoire élevé, avec un temple de Venus Acræa, les promontoires s'appellant en grec [GREEK]. Ce temple avoit cela de particulier, que l'entrée et même la vue en étoient interdites aux femmes. Meursius* confond le promontoire Olympe avec le mont Olympe, qui étoit près de Palæa et d'Amathunte, et attribue à ce mont le temple dont je viens de parler.
+
+*) Idem ibid. pag. 1001. B.
+
+*) Meursius in Cypro, lib. 1. cap. 28.
+
+Après avoir dit que les femmes se prostituoient à Babylone une fois en leur vie, Hérodote* remarque qu'on observoit une coutume à peu près pareille en quelques endroits de l'isle de Cypre. Justin* assure que les habitans de cette isle avoient coutume d'envoyer leurs filles sur le bord de la mer, en certains jours de l'année, où elles se prostituoient pour de l'argent, dont elles amassoient leur dot ; elles en étoient quittes pour faire des libations à Vénus. Lactance* prétend que Vénus établit elle-même cette coutume, afin de ne point passer pour être la seule qui eût renoncé à toute pudeur. Mais sans doute qu'il ne vouloit point parler de la Déesse de ce nom, mais de la Maîtresse de Cinyras, qui avoit nom Vénus, comme nous l'apprennent* Julius Firmicus Maternus de Errore Profanarum Religionum, et Arnobe* adversus gentes. _Numquid Rege à Cyprio, cujus nomen Cinyras est, ditatam meretriculam Venerem divorum in numero consecratam?_ Cependant je ne dois point dissimuler que ces deux Auteurs donnent à penser qu'on fit dans la suite une divinité de cette Maîtresse de Cinyras ; mais ce sentiment me paroît absurde.
+
+*) Herodot. lib. 1. §. 199.
+
+*) Justini Histor. lib. 18. cap. 5. pag. 439.
+
+*) Lactant de Falsâ Religione, lib. 1. §. 17. p. 92.
+
+*) Ad Calcem Minutii Felicis, pag. 22.
+
+*) Arnobius, liv. 5. pag. 143.
+
+Cinyria, ville dont parle* Pline le Naturaliste, étoit remarquable par le culte d'Uranie. Ce qui a fait dire à Nonnus* qu'elle étoit la demeure fixe de cette Déesse, [GREEK]. Meursius a oublié de remarquer que Vénus y étoit adorée.
+
+Tamasus ou Tamasée, ville chérie de Vénus, comme on le voit par Ovide.* Meursius applique à Amamassus, ville qui n'a jamais eu d'existence que dans des Éditions vicieuses d'Ovide, ce qu'il devoit dire de Tamasus.
+
+Aphrodisium, ville de Cypre,* dont le nom indique la vénération que ses habitans avoient pour la Déesse.
+
+Tremithus, bourgade de Cypre, qui tire son nom de ce qu'elle trembla à l'arrivée de Vénus. Mais Etienne de Byzance croit avec plus de raison, qu'elle fut ainsi appellée à cause de la grande quantité de Térébinthes qui croissoient en ce lieu. Les habitans de Cypre nommoient le térébinthe en leur langue Tremithous.
+
+*) Plin. Histor. Natural. lib. 5. cap. 31. pag. 284.
+
+*) Nonnus Dionysiacor. lib. 13. vers 452.
+
+*) Ovid. Metamorphos. lib. 10. vers. 644. etc.
+
+*) Ptolemæi Tabula Urbium insignium. Inter Geographiæ Scriptoies Minores, tom. 3. pag. 32.
+
+Le Palais de Vénus,* ouvrage de Vulcain, son mari, étoit, je crois, à Idalie. Le Dieu l'avoit bâti lorsqu'il reçut la Déesse des mains de Jupiter. Ce Palais étoit situé dans la partie Orientale de l'isle, comme le dit Claudien,* sur un mont escarpé, inaccessible aux hommes. La rigueur des hivers, l'ardeur brûlante des étés ne se sont point sentir sur ce mont ; les vents, les orages craignent de s'en approcher ; un printemps perpétuel y regne. Une plaine spatieuse en occupe le sommet : une muraille d'or l'environne et en interdit l'entrée. Des fleurs éternelles y croissent d'elles-mêmes et sans culture, et connoissent seulement la douce haleine des zéphyrs. On voit aussi en ces beaux lieux un sombre bocage, où ne sont admis que les oiseaux qui ont remporté le prix du chant au jugement de la Déesse. Les vaincus vont ailleurs cacher leur honte. Les arbres y sont sensibles à l'amour ; ils aiment et sont aimés à leur tour. Le palmier se baisse sur sa compagne ; le peuplier soupire pour le peuplier, le plane pour le plane, et l'aune répond au doux murmure de l'aune. Là coulent deux fontaines ; l'une est douce, et l'autre communique même au miel, l'amertume de ses eaux. C'est, dit-on, dans leurs ondes que Cupidon trempe ses flêches. Mille petits Amours, le carquois sur l'épaule, jouent sur leurs bords. Ils sont freres et se ressemblent. Les Nymphes leur ont donné le jour. Vénus reconnoît seulement Cupidon pour son fils. C'est lui, qui, l'arc* à la main, se fait obéir des dieux, du ciel et des astres ; c'est lui qui perce les Rois de ses traits, tandis que les autres exercent leur empire* sur les peuples. C'est en ce beau lieu qu'habitent la licence sans contrainte, la colere des amans facile à appaiser, les veilles trempées de vin, les larmes qui n'ont point encore appris à couler, la pâleur flatteuse des amants, l'audace chancelante dans une premiere aventure, les craintes agréables et la volupté mal assurée. Les parjures voltigent sur leurs aîles légeres, et la jeunesse altiere et la tête levée, interdit à la vieillesse l'entrée du bocage. Le Palais de la Déesse réfléchit de mille manieres les rayons du soleil ; il est d'or et de pierreries enchassées avec art ; les poutres en sont d'émeraude, les colonnes d'hyacinthe, les murailles de bérylle, le seuil des portes de jaspe, et l'on soule aux pieds l'agathe. On y respire les plus doux parfums de l'Arabie. Les Graces sont debout à côté de la Déesse ; l'une lui verse le nectar et les deux autres donnent à sa chevelure ces charmes enchanteurs et cette agréable négligence, le désespoir de l'art. Ce fut dans ce Palais* que se rendirent Junon et Pallas pour prier Vénus d'inspirer à Médée de l'amour pour Jason. La mere des amours fit alors usage pour la premiere fois de l'Iunx.
+
+*) Apollonius Rhodius, lib. 3. vers 36.
+
+*) Claudian. de Nuptiis Honorii et Mariæ. vers. 49. etc. J'ai traduit librement ce morceau entier de Claudien.
+
+*) Nonnus dit que l'Amour gouverne le Mari de Junon avec la houlette de Vénus : c'est ainsi qu'il appelle l'arc de ce Dieu : [GREEK]. Nonnus Dionysiacorum. lib. 1. vers. 82.
+
+*) Philostrate fait mention (Icones, lib. 1. [GREEK]) d'un amour céleste, d'un Uranius qui gouverne les Dieux, et de petits Amours, enfans des Nymphes, qui régissent tout ici bas.
+
+L'Iunx est un oiseau dont les Anciens se servoient dans leurs enchantemens, et sur-tout dans les philtres. On croit communément que c'est le hochequeue. Les Latins l'appelloient _frutilla_, parce qu'il est consacré à Vénus dont Frutis étoit un surnom, comme nous le verrons dans la suite. Les enchanteresses l'attachoient à une roue qu'elles tournoient rapidement en chantant des vers magiques. D'autres pensent, dit le Scholiaste* de Pindare, qu'elles n'attachoient point cet oiseau entier à la roue, mais seulement ses entrailles. Quoi qu'il en soit, Vénus* fit connoître la premiere cette sorte d'enchantement, et en donna des leçons à Jason, oui s'en servit pour fléchir le cœur de Médée. Cette allégorie n'a pas besoin d'explication. Quoique très-sensible, beaucoup d'Anciens ne l'ont point sentie, et croyoient bonnement à la prétendue vertu physique de cet oiseau.
+
+*) Apollonius Rhodius, lib. 3. vers. 36.
+
+*) Scholiast. Pindari ad Pyth. 4. vers. 380.
+
+*) Pindari Pythic. 4. vers. 384.
+
+La description précédente est fondée sur la douceur du climat de l'isle de Cypre, et le culte dont la Déesse étoit particuliérement honorée à Idalie. On lait qu'il y avoit* en ce lieu un promontoire et une colline élevée, avec une petite ville et un bois consacré à Vénus. Meursius a très-bien vu qu'il falloit lire dans le passage de Strabon, [GREEK] au lieu de [GREEK].
+
+*) Strabo, lib. 14. pag. 1001. C. Scholiast. Theocriti ad Idyll. 15. vers. 100. Stephanius Byzantinus voc. [GREEK].
+
+C'est au culte de la Déesse que fait allusion Catulle dans ce vers :
+
+_Quæque regis Golgos, quæque Idalium frondosum._  Catull. 63, 96.
+
+Théocrite avoit dit auparavant* :
+
+[GREEK].
+
+« Reine, qui vous plaisez à Golgos et à Idalium. »
+
+Vénus [GREEK], miséricordieuse, étoit encore adorée en Cypre. Ce surnom lui fut peut-être donné par allusion à quelque histoire qui n'est point venue jusqu'à nous ; ou peut-être parce quelle est sensible aux soupirs des amans et qu'elle a pitié de leurs peines. Meursius a oublié cette Vénus, ainsi que beaucoup d'autres. Le Prêtre, qui présidoit dans l'isle aux sacrifices de la Déesse, s'appelloit Agétor, [GREEK]. _Voyez_ Hésychius aux mots [GREEK] et [GREEK].
+
+*) Théocrit. Idyll. 15. vers. 100.
+
 ...
