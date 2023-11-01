@@ -608,4 +608,240 @@ Vénus [GREEK], miséricordieuse, étoit encore adorée en Cypre. Ce surnom lui 
 
 *) Théocrit. Idyll. 15. vers. 100.
 
+On la représentoit encore dans la même isle armée d'une pique, et alors elle étoit connue sous le nom d'[GREEK] hastata, de [GREEK] hasta. [GREEK], dit Hésychius, [GREEK]. Meursius n'a point parlé de cette Vénus, non plus que de la suivante, qui étoit nue et d'ivoire, et si belle que Pygmalion, qui l'avoit faite, en devint amoureux et satisfit avec elle ses desirs effrénés. Clément d'Alexandrie rapporte* ce trait d'après Philostephanus qui avoit composé une histoire de Cypre que le sort nous a enviée. Arnobe* raconte aussi la même chose, mais il métamorphose ce Statuaire en un Roi de Cypre. Les habitans de cette isle avoient un mois qu'ils nommoient* Aphrodisius. Cela n'est point étonnant de la part d'un peuple si adonné au culte de Vénus.
+
+*) Clemens Alexandrin. in Protreptico, pag. 50. lin. 41 et pag. 51.
+
+*) Arnob. adversus Gentes, lib. 6. pag. 206.
+
+*) Porphyrius de Abstinentiâ ab Esu Animal, lib. 2. §. 54. pag. 198.
+
+Les traditions, sur le lieu où Vénus étoit abordée au sortir de l'élément qui lui avoit donné naissance, varioient beaucoup entr'elles. Si l'isle de Cypre disputoit cette gloire à celle de Cytheres, Béroë, au jugement de quelques Anciens, l'emportoit et sur l'une et sur l'autre. Voici un passage formel de Nonnus, que je traduis tel que je pense qu'il doit être corrigé.
+
+« La Deesse, dit cet Auteur,* n'accourut ni à Paphos, ni à Byblos, elle ne mit point le pied sur le rivage Colias, passa rapidement l'isle de Cytheres,... et aborda à Béroë ; aussi les habitans de Cypre sont-ils des menteurs, lorsqu'ils soutiennent qu'elle vint en leur isle, au sortir de la mer. »
+
+*) Nonnus Dionysiacorum, l. 41. 5. 107-117.
+
+[GREEK].
+
+[GREEK].
+
+L'avant dernier vers est étrangement altéré.* Les mots [GREEK] ne font absolument aucun sens. Je les change en [GREEK] par un théta.
+
+Tout devient alors clair. « Vénus arrive à Béroë, et c'est faussement que l'habitant de Cypre dit que cette isle fut l'abord de la Déesse au sortir de la mer. » Ma conjecture, quoique hardie, n'en est pas moins certaine. Il est impossible que Nonnus se soit exprimé autrement.
+
+*) Le texte des Dionysiaques est prodigieusement corrompu. C'est l'étable d'Augée. Les conjectures de Falkenburgh sont peu de chose, et la traduction latine de Lubin est absurde. En voici un exemple. Livre 41. vers 281. [GREEK]. Lubin, ne s'etant pas douté que le texte fut altéré, a traduit : _et dolum liberabant circularem imaginem mundi famulæ hinc et hinc_. Il faudroit être plus qu'Œdipe pour entendre ce latin. Un Traducteur, même borné, se seroit apperçu que le texte étoit corrompu, et s'il ne se fût point senti assez fort pour le corriger, il en auroit averti par une étoile plutôt que de traduire d'une maniere aussi absurde. La correction étoit facile. Il falloit seulement séparer [GREEK] en deux, et écrire [GREEK], etc. Le sens est alors clair. « Des femmes, dit Nonnus, dispersees de côté et d'autre, gardoient toute l'enceinte du palais d'Harmonie, image du monde. » Mais au livre 42. vers 1. il falloit, au contraire, de deux mots n'en faire qu'un.  [GREEK].  La version _vetusto calceo_ est ridicule. Il faut lire en un seul mot [GREEK] _sublimibus vero talaribus_ avec sa chaussure aîlée.
+
+La prédilection de Vénus pour Béroë n'a rien de surprenant. Je ne parlerai, ni de l'ancienneté de cette ville, ni de son origine que Nonnus* fait remonter avant celle des Arcadiens, quoiqu'ils se vantassent d'être antérieurs à la Lune. Je ne dirai pas non plus avec cet Auteur qu'elle fut la premiere ville qui parut après le débrouillement du Cahos. Mais je ferai remarquer* la fertilité de son territoire, des prairies toujours émaillées de fleurs, des ruisseaux qui portent partout l'abondance, des bocages de palmiers et d'oliviers, des collines couronnées de pampres, des terres couvertes des dons de Cérès, et un printemps perpétuel.
+
+*) Nonnus Dionysiacorum, lib. 41. vers. 83, etc.
+
+*) Voyez les cinquante premiers vers du 41 Livre des Dionysiaques de Nonnus.
+
+Cette ville étoit le siége de l'éloquence,* de la justice, des loix. C'étoit le séjour favori de Vénus, des amours, des plaisirs ; les Graces s'y plaisoient plus que par-tout ailleurs, c'étoit leur Orchomene.*
+
+*) Idem ibid. vers. 245, etc.
+
+*) Pindare appelle Orchomene la Ville des Graces. Pythiques, Od. 12. vers 46, et dans la 14 Olympique, vers 3 ; il dit, en s'adressant aux Graces : O, vous Graces, qui regnez sur la fertile Orchomene.
+
+Béroë, avant que d'être une ville, étoit une Nymphe, fille de l'Océan* et de Tethys, et portoit le nom d'Amymone. Mais selon une autre tradition, Béroë étoit fille de Vénus* et d'Adonis. Je ne dirai point que la Déesse la mit au monde sur le Livre des Loix* de Solon, à la maniere des femmes de Lacédémone qui accouchoient sur un bouclier ; je ne parlerai pas non plus de l'éducation qu'on lui donna. Cela peut servir d'illustration à la ville de Béroë, ou Beryt, comme elle a été appellée depuis, mais me paroît étranger au sujet proposé par l'Académie.
+
+*) Nonnus Dionysiacor. lib. 41. vers. 150, etc.
+
+*) Idem ibid. vers. 155, etc.
+
+*) Idem ibid. vers. 165. etc. Cette idée est ingénieuse, quoiqu'elle pêche par l'ordre des temps. Qu'on ne s'imagine pas que les Loix de Solon fussent alors écrites sur des rouleaux _volumina_ comme les livres anciens l'ont été depuis. Elles l'étoient sur de grandes planches carrées ou triangulaires, selon quelques auteurs, appliquées sur un ouvrage en brique, de la grandeur d'un homme, et que l'Ecrivain faisoit mouvoir à volonte par le moyen de boulons placés de l'un et de l'autre côté. [GREEK]. Je rapporte ce passage en entier afin de faire sentir la nécessité de lire [GREEK] _des boulons_. Car à quoi auroient pu servir _des roseaux_ [GREEK]. Il faut encore rendre le même terme à l'Auteur de l'Etymologicum Magnum, an mot [GREEK], et lire [GREEK] au lien de [GREEK]. Vitruve a employé le mot Cnodax en pareille occasion. On peut consulter Saumaise _de Modo Usurar._ pag. 102. On appelloit ces planches [GREEK] et [GREEK]. Voyez l'Etymologicum Magnum, au mot [GREEK]. Ces  Loix étoient écrites [GREEK], de la maniere dont les bœufs forment les sillons, c'est-à-dire, de la gauche à la droite et ensuite de la droite à la gauche. Voyez le Lexique d'Harpocration, au mot : [GREEK].
+
+Après m'être étendu sur la Vénus Céleste des Orientaux autant que l'exigeoit mon sujet, passons à celle des Grecs. Ces peuples ci tenoient leurs dieux des Barbares. Hérodote le dit positivement.* La plupart de ces Dieux leur avoient été donnés par les Egyptiens ; ils en avoient reçu des Libyens et des Pélasges, et l'on ne peut douter que les Phéniciens n'aient introduit les leurs dans les pays où ils s'établirent. Il n'y a pas d'apparence que les Grecs aient connu Vénus avant l'arrivée de Cadmus. On voyoit à Thèbes* une statue de Vénus-Uranie si ancienne, qu'on la croyoit une offrande d'Harmonie, fîile de Cadmus. Les Thébains prétendoient qu'elle avoit été faite des éperons des navires qui avoient amené Cadmus. Harmonie imposa elle-même ce nom à cette Vénus, dit Pausanias, afin d'exprimer son amour honnête et dégagé des sens. Le culte de la Déesse n'avoit donc pas encore dégénéré en Orient, ou du moins la dépravation n'éioit pas universelle.
+
+*) Herodot. lib. 2. §. 50.
+
+*) Pausanias Bæotic. lib. 9. cap. 16. pag. 742.
+
+Cadmus avoit sans doute beaucoup de vénération pour Vénus, puisqu'il lui dédia ia troisieme Porte de Thèbes : [GREEK].* Ce devroit être la Porte Ogygie, suivant l'énumération d'Euripide* ; mais d'autres Auteurs placent ces Portes dans un ordre différent. Si nous avions l'ouvrage d'Aristodeme de Thebes sur tout ce qui regardoit* cette ville, nous saurions à quoi nous en tenir.
+
+*) Nonnus Dionysiacor. lib. 5. vers. 80.
+
+*) Euriplde Phœniss. vers. 1120.
+
+*) Suidas voc. [GREEK].
+
+On voyoit à Cythere un temple* d'Uranie très-respecté et le plus ancien que la Déesse ait eu en Grece. Sa Statue la représentoit armée. De cette isle elle prennoit le nom de [GREEK]* Cythérée, ou, parce que les amans se cachent et agissent en secret, comme le dit le Scholiaste d'Hésiode sur le vers 196 de la Théogonie, ou, parce qu'elle cache les amans, comme on le voit dans Eustathe* sur Homere, ou, comme il n'y a rien de si incertain que la science des Etymologies, à cause de l'imprégnation, dit Phurnutus,* qui est la suite de l'union des deux sexes, [GREEK]. On peut encore voir d'autres étymologies dans l'Etymologicum Magnum aux mots [GREEK] et [GREEK] ; mais je crois devoir m'y arrêter d'autant moins qu'elles sont la plupart trop recherchées, et qu'il est inutile d'en charger cette Dissertation.
+
+*) Pausanias Laconic. sive lib. 3. cap. 23. pag. 269.
+
+*) Hesiodi Theogonia, vers. 198.
+
+Elle est aussi appellée Cytherias dans une Epigramme d'Antipater de Sidon, dont je parlerai dans la suite, et qui se trouve page 24 de l'Anthologie Grecque de Constantin Céphalas, imprimée à Léipsick par les soins de feû M. Reiske.
+
+Si nous passons de cette isle dans celle de Crete, nous y lirons une Inscription, rapportée par Reinesius,* qui indique que Minyra, sœur de Diodotus, étoit Prêtresse de Vénus-Uranie. J'ignore qui étoit ce Diodotus, et peut-être est-il fort peu important de le savoir. Mais cette Inscription nous fait conjecturer qu'il y avoit à Aptere en cette isle un temple ou une chapelle d'Uranie.
+
+*) Eustathii Commentar. ad Homeri Odyss. pag. 1598. lin. 50.
+
+*) Phurnutus de Naturâ Deorum, cap. 24. pag. 197.
+
+*) Reinesius Class. 5. num. 11. ex Gualthero.
+
+Le trajet de Crete en Laconie n'est pas long. Près du Scias, bâtiment où le peuple s'assembloit à Sparte* sur la Place, étoit un édifice rond, où l'on voyoit les Statues de Jupiter Olympien et de Vénus Olympienne. Cette épithete me persuade que c'étoit Uranie. J'en dis autant de cette Vénus qui avoit un temple dans la même ville, sous le nom de Vénus-Junon.* Il avoit été bâti par Eurydice, fille de Lacédémon et femme d'Acrisius, près du monument du Heros Pleuron.
+
+*) Pausanias Laconic. sive, lib. 3. cap. 12. pag. 237.
+
+*) Idem ibid. cap. 13. pag. 240.
+
+Si nous allons de Sparte à Mégalopolis en Arcadie, nous trouverons qu'il y avoit eu près du Théâtre* un temple de Vénus, dont il ne subsistoit plus que îa partie antérieure du temps de Pausanias, avec trois Statues, dont l'une étoit d'Uranie.
+
+*) Idem Arcadic. sive lib. 8. cap. 32. pag. 666.
+
+A Tégée, dans le même pays, il y avoit un temple de Vénus Paphia,* c'est-à-dire, d'Uranie, bâti près de celui de Cérès et Proserpine, par Laodice, fille d'Agapénor, qui commandoit les Arcadiens au siége de Troie.
+
+*) Pausanias Arcadic. sive lib. 8. cap. 53. pag. 707.
+
+Il y avoit eu à Olympie* un temple de Vénus-Uranie près de celui d'Ilithyie ; on n'en voyoit plus que les ruines du temps de Pausanias. Cependant on sacrifioit à cette Déesse sur des autels qui subsistoient encore en cette ville.
+
+Si l'on se rend ensuite à Elis, on remarquera près de la Place publique et derriere le portique bâti des dépouilles des Corcyréens, un temple de Vénus.* Non loin de ce temple étoit une piece de terre qui en dépendoit. La statue de la Déesse portoit le nom de Céleste. Elle étoit d'or et d'ivoire, et c'étoit un ouvrage de Phidias. La Déesse avoit un pied sur une tortue. Pausanias, de qui j'emprunte ce récit, laisse à d'autres le soin d'expliquer ce que les Anciens avoient voulu dire par cet emblème ; mais Plutarque, qui parle de cette Vénus dans son Traité sur Isis et Osiris, nous apprend qu'on avoit voulu faire entendre qu'il convenoit* aux femmes mariées de garder le silence et de rester à la maison.
+
+Car une femme, dit-il autre part,* ne doit parler qu'à son mari, ou par l'organe de son mari, sans trouver mauvais, si, de même qu'un joueur de flûte, elle parle d'une maniere plus grave avec la langue d'un autre. Le P. de Montfaucon* n'a pas rendu exactement le premier passage de Plutarque, et ne paroît point avoir eu connoissance du second.
+
+*) Idem Eliacorum posterior. sive. lib. 6. cap. 20. pag. 502.
+
+*) Idem ibid. cap. 25. pag. 515 et 516.
+
+*) Plutarchus de Iside et Osiside, pag. 381. E.
+
+*) Idem in Conjugia. Præcept. pag. 142. D.
+
+*) Antiquité Expliquée, tom. 1. pag. 164.
+
+Je croirois volontiers que c'est de ce temple qu'a voulu parler Cicéron lorsqu'il a dit que la premiere Vénus,* fille de Cœlus et Dies, avoit un temple en Elide.
+
+*) Cicero de Naturâ Deorum, lib. 3. §. 23.
+
+Les habitans d'Ægire en Achaïe* avoient une vénération particuliere pour Vénus-Uranie. Il n'étoit point permis aux hommes d'entrer dans son temple.
+
+*) Pansanias Achaic. sive, lib. 7. cap. 26. pag. 592.
+
+On voyoit à Sicyone un temple de la Déesse, où il n'étoit permis d'entrer qu'à une femme* qui en étoit Sacristaine, et qui, dès l'instant qu'elle en faisoit les fonctions, n'avoit plus de commerce avec son mari, et à une jeune vierge qui en étoit la Prêtresse, et dont le Sacerdoce ne duroit qu'un an. Les autres pouvoient voir la Déesse du seuil de la porte, et lui adresser delà leurs prieres. Cette attention de n'admettre auprès de la Déesse que des vierges et des personnes qui gardoient la continence, me persuade que cette Vénus étoit Uranie, quoique Pausanias, que je me contente de traduire, n'en dise pas un mot. Mais pourquoi Vénus-Uranie, qui préside aux chastes amours, est-elle honorée par des vierges et des femmes qui observent la chasteté ? Je pense que cet usage étoit venu d'Egypte à Sicyone. Les Egyptiens, disposés à la mélancholie, croyoient honorer les Dieux par des jeûnes et en se privant des plaisirs les plus légitimes. On honora Vénus par de pareilles privations, en la considérant comme Dieu, et en faisant abstraction de son principal attribut. Quoi qu'il en soit, la Déesse étoit représentée assise, et étoit l'ouvrage de Canachus de Sicyone. Elle étoit d'or et d'ivoire, avoit la tête surmontée de cette espece de petit toit en forme de parasol qu on appelloit [GREEK],* et tenoit d'une main un pavot, et de l'autre une pomme. On lui offroit en sacrifice les cuisses de toutes sortes de victimes, excepté celles des porcs. Cette aversion pour le porc me confirme que le culte de cette Vénus venoit d'Egypte. Je sais que cette aversion se faisoit remarquer chez plusieurs peuples de l'Asie ; mais il seroit aisé de prouver qu'ils l'avoient puisée chez les Egyptiens.
+
+*) Idem Corinthiac. sive, lib. 2. cap. 10. p. 134.
+
+*) L'Abbé Gédoyn a traduit une coëffure terminée en pointe. Ce n'est point la seule méprise de cet Abbé ; on en verra bien d'autres par la suite. Les temples des Anciens n'etoient pas fermés, comme les nôtres, avec des vitres ; il y en avoit même qui étoient absolument découverts. Pour garantir les Statues des Dieux des ordures des oiseaux, on les surmontoit d'une espece de petit toît en forme de parasol, qu'on appelloit [GREEK]. Ainsi, le [GREEK] n'étoit point particulier à Vénus.
+
+Il y avoit à Argos* un temple de Vénus-Uranie près de celui de Bacchus.
+
+*) Idem ibid. cap. 23. pag. 165.
+
+Il ne me reste plus à parler que d'Athenes, la ville la plus superstitieuse qui ait jamais été. Uranie* y avoit dans le quartier appellé les Jardins, un temple, près duquel elle étoit représentée par une pierre quadrangulaire. L'Inscription, gravée sur cette pierre, portoit qu'elle étoit plus ancienne que les Parques. L'Abbé Gédoyn met, dans sa traduction de Pausanias, qui fourmille de contresens, qu'elle étoit la plus ancienne des Parques. M. L'Abbé Banier avoit dit avant lui (dans les Mémoires de l'Académie des Belles-Lettres, tome 5, Mém. page 27) que Vénus-Uranie étoit la premiere et la plus ancienne des Parques, et il avoit cité en marge Pausanias. M. Gori* a fait aussi la même faute. Mais qui a jamais entendu dire que Vénus ait été une des Parques ? Ces Ecrivains sont tombés dans cette erreur, parce qu'ils n'ont point fait attention que le superlatif se met souvent en grec pour* le comparatif, et que n'y ayant point d'article dans le texte [GREEK], il n'en falloit pas mettre en françois. Cette Vénus, dis-je, étoit plus ancienne que les Parques, étoit antérieure aux Parques ; aussi avoit-elle sur elles un souverain empire, comme l'a remarqué l'Auteur très-ancien des Hymnes attribués à Orphée, [GREEK]* que Scaliger a mieux rendu que l'Interpréte de Stobée, et _trium jura tenes Mortarum_. On sacrifioit à cette Vénus, dit* Lucien, une genisse. Il faut cependant convenir qu'elle est appellée [GREEK] dans des vers rapportés par Plutarque,* et qui sont probablement un fragment d'une Tragédie perdue de Sophocle. Mais il faut faire attention que ce Poëte ne dit pas qu'elle ait eu ce nom, mais qu'il le lui donne poëtiquement et relativement à sa force irrésistible.
+
+*) Idem Attic. sive. lib. 1. cap. 19. pag. 44.
+
+*) Gori Museum Etruscum, tom. 2. pag. 350.  Cet Ouvrage est fait avec beaucoup de négligence. J'ai lu avec attention tout ce que cet Ecrivain dit sur Vénus, Se j'ose dire qu'il se fonde le plus souvent sur des conjectures hasardées, et sur des passages d'Auteurs, faux, corrompus ou mal interprétés. Il induira surement en erreur ceux qui n'auront pas recours aux sources. J'en avertis une fois pour toutes.
+
+*) En voici des exemples en faveur de ceux qui pourroient ne se les pas rappeller. [GREEK]. Herodot. lib. 3. §. 119. [GREEK]. Euripid Andromach. ver. 6.
+
+*) Orphei Hymn. 54. vers. 5.
+
+*) Lucian Dialog. Meretricum, tom. 3. pag. 295.
+
+*) Plutarchus. in Amatorio, pag. 757. A.
+
+Indépendemment de cette représentation symbolique, la Déesse avoit* dans le même temple une statue, ouvrage d'Alcamene, Athénien, et l'une des plus belles statues qu'il y eut à Athenes. Pline, qui en parle, livre 36 de son Histoire Naturelle, chap. 5, nous apprend que le quartier, appellé les Jardins, étoit hors de la ville, et que l'on disoit que Phidias, Maître d'Alcamene, avoit mis la derniere main à cette statue. Lucien, voulant faire le portrait* d'une beauté accomplie, emprunte de cette Vénus le sein, les bras et les mains.
+
+*) Pausanias Attic. sivè lib. 1. cap. 19. pag. 441.
+
+*) Lucian. in Imaginibus, tom. 2. §. 6. pag. 464.
+
+Agoracrite de Paros* avoit été aussi disciple de Phidias. Ces deux éleves avoient travaillé à l'envi l'un de l'autre a une Vénus. Les Athéniens, qui favorisoient leur compatriote, donnerent l'avantage à Alcamene. Mais on dit qu'Agoracrite vendit la sienne, à condition qu'on ne la placeroit pas à Athenes, et qu'il l'appella Némésis. Elle fut posée à Rhamnus, bourgade de l'Attique. M. Varron donnoit à cette Statue la préférence sur toutes les autres.
+
+*) Plin. Histor. Natural. lib. 36. cap. 5. tom. 2. pag. 725. lin. 12. etc.
+
+Cette pierre quadrangulaire avoit-elle donné occasion* aux Pythagoriciens de représenter Rhéa, Vénus, Cérès et Junon sous la forme d'un carré ? Je croirois plutôt que cela tenoit à leur systême sur les nombres qui n'est pas de mon sujet.
+
+Vénus avoit encore* dans la même ville un temple au dessus du Céramique, où l'on voyoit sa Statue en marbre de Paros ; c'étoit un ouvrage de Phidias. Mais Pausanias n'ajoute point que ce temple ait été bâti par Porphyrion, comme l'avance Meursius,* et beaucoup d'autres Écrivains qui n'ont fait que le copier. On s'apperçoit qu'il le confond avec celui des Athmonéens, dont je parlerai dans un instant. Cette Statue avoir été portée à Rome, et se voyoit dans l'École* des Portiques qu'Auguste avoit fait bâtir sous le nom de sa sœur Octavie, et qui étoit dans le neuvieme quartier de Rome, près du Théâtre de Marcellus.
+
+*) Plutarchus de Iside et Osiride. pag. 363. A.
+
+*) Pausanias Attic. sive lib. 1. cap. 14. pag. 36.
+
+*) Meursius Athenæ Atticæ, lib. 1. cap. 4.
+
+*) Plin. Hist. Natural. lib. 36. cap. 5. tom. 2. p. 725. lin. 9. Idem, lib. 35. cap. 10, p. 701. lin. 19.
+
+Egée se voyant sans enfans attribuoit ce malheur, ainsi que l'infortune de ses sœurs, à la colere de Vénus-Céleste. Pour appaiser la Déesse, il introduisit* son culte à Athenes. On ne sait point en quoi il consistoit ; mais comme cette Déesse étoit la même que celle qui étoit adorée en Assyrie, et en Cypre, je présume que le culte étoit aussi le même. On peut voir ce que j'en ai dit en parlant de d'isle de Cypre.
+
+*) Pausanias Attic. sive, lib. 1. cap. 14. pag. 36.
+
+Les Athmonéens,* peuple de l'Attique, avoient aussi chez eux un temple de Vénus-Céleste, qu'ils croyoient fondé par Porphyrion, qui avoit régné dans l'Attique, même avant Actée. Pausanias remarque à ce sujet que les Municipes de l'Attique avoient sur cette Déesse des opinions très-différentes de celles du peuple de la Capitale. Meursius* fait dire mal-à-propos à Pausanias, comme je l'ai déja observé, que les Athmonéens attribuoient à Porphyrion la fondation du temple d'Uranie, qui étoit au dessus du Céramique. Le récit de Pausanias est tel que je l'ai rapporté, comme on peut s'en convaincre à l'inspection de cet Auteur.
+
+*) Idem ibidem.
+
+*) Meursius Athenæ Atticæ, lib. 1. cap. 4.
+
+Si d'Athenes nous passons en Sicile, nous y trouverons établi le culte d'Uranie. Une inscription trouvée à Ségeste en cette isle, en est la preuve. Il y est fait mention d'une certaine Minyra, fille d'Artémon, qui en étoit Prêtresse. Elle est rapportée par Gualtherius, _Tab. Sicul._ page 49, _Editionis Messanens._
+
+Le culte d'Uranie avoit pénétré en Scythie. La Déesse y étoit adorée sous le nom d'Artimpasa.*
+
+On trouve à la planche 99e du premier volume de l'Antiquité Expliquée du P. de Montfaucon, trois figures qu'on croit celles de Vénus-Uranie. La premiere porte un voile attaché au cou, et qui tombe par derriere. Elle est aîlée et présente un bracelet à Cupidon. La seconde, aîlée ainsi que la premiere et vêtue, tient entre les mains un globe céleste qu'elle examine ; au-dessous est un flambeau avec un papillon au-dessus. La troisieme est un buste de femme avec des aîles, dont la coeffure est nouée de maniere qu'on en prendroit les deux bouts pour des cornes. J'ai remarqué ces fortes de coëffures dans des Vénus du Museum Etruscum de Gori. Ce Sçavant croyoit que c'étoit le Polos, dont parle Pausanias, et dont j'ai donné l'explication à l'occasion d'Uranie adorée à Sicyone* ; mais il se trompe grossiérement. Les médailles la représentent sans aîles, tenant d'une main une pomme et de l'autre une pique, avec une étoile à côté d'elle.
+
+*) Herodot. lib. 4. §. 59. Hesych.
+
+*) Ci-dessus, pag. 69 Note.
+
+Comme Vénus-Uranie présidoit* à la propagation de l'espece humaine, on ne doit pas être surpris que cet attribut ait donné lieu à la corruption de s'introduire en Grèce de même qu'en Asie. Mais les Grecs, plus sages que les Orientaux, conserverent chez eux le culte d'Uranie dans toute sa pureté, et ils imaginerent deux autres Vénus,* l'une fille de Jupiter et de Dioné, l'autre de la mer, qui présidoient, suivant eux, aux plaisirs peu chastes ; et même en cela ils furent plus réservés que les Asiatiques, et ne se livrerent pas à une prostitution aussi effrénée que ces peuples.
+
+*) Apul. Metamorphos. lib. 11. pag. 357.
+
+*) Ces deux Vénus tenoient aux systêmes philosophiques des Orientaux. Voyez ci-dessus p. 6, 7 et 8. l'article de Vénus engendrée de la mer, et l'Epilogue.
+
+Xénophon fait dire à Socrate dans le Banquet* « qu'il ignoroit s'il y avoit deux Vénus, l'une Céleste et l'autre Pandemos (qui appartient à tout le peuple). Car, Jupiter, ajoute-t-il, qui paroit Un a beaucoup de surnoms ; mais il savoit que leurs temples, leurs autels étoient bien différents ; que le culte de Vénus-Uranie étoit chaste et celui de Pandémos criminel. » Personne n'ignore, dit Platon,* que sans Amour il n'y a point de Vénus. S'il n'y en avoit qu une seule, il n'y auroit qu'un seul Amour. Puisqu'il y a deux Vénus, il faut donc qu'il y ait aussi deux Amours. Qui ne sait, en effet qu'il y a deux Vénus, l'une très-ancienne, sans mere et fille d'Uranus, d'où lui vient le nom d'Uranie, l'autre plus jeune, fille de Jupiter et de Dioné, que nous appellons Vénus-Pandémos. »
+
+*) Xénophon. Sympos. cap. 8. §. 9. pag. 183.
+
+Ce nom vient de [GREEK] tout et de [GREEK] peuple, parce que Thésée introduisit* son culte à Athenes, après avoir rassemblé dans cette ville le peuple qui étoit auparavant dispersé dans les différentes bourgades. Apollodore disoit, dans son Traité* sur les Dieux, que l'on avoit donné à Athenes le nom de Pandémos à la Statue de la Déesse qui avoit été posée dans la Place publique, parce que l'on avoit anciennement rassemblé le peuple en ce lieu. L'ancienne Statue de Pandémos n'existoit plus du temps de Pausanias ; celle qu'on y avoit substituée étoit l'ouvrage d'un très-habile artiste. Le nom de Pandémos servit dans la suite à désigner Vénus présidant à la prostitution publique. Il n'avoit rien dans l'origine que de très-honnête, et s'appliquoit à d'autres dieux. Dans le cabinet de là Reine Christine, il y avoit une Médaille avec la tête de Jupiter et l'Inscription [GREEK]. La même inscription se trouve sur des Médailles de Nerva et de Domitien, son prédécesseur. Le même Thésée plaça près de la Statue de Vénus celle de Pitho, la Déesse de la persuasion. L'allusion est sensible ; une belle femme ne plaît pas long-temps, si elle ne joint les graces de l'esprit et de l'élocution à ses autres charmes. Vénus fut aussi appellée Suada,* parce qu'elle persuade tout ce qu'elle veut.
+
+*) Platonis Sympos. tom. 3. pag. 180. D.
+
+*) Pausanias Attic. sive, lib. 1. cap. 22. pag. 51.
+
+*) Harpocrat. Voc. [GREEK]. pag. 138.
+
+L'Abbé Gédoyn traduit toujours dans Pausanias Pandémos par _Vulgaire_ ; mais ce terme ne me paroissant point rendre l'expression grecque, et moins encore faire sentir la raison qui l'avoit fait employer, j'ai cru qu'il falloit d'autant moins chercher d'équivalent au mot grec, qu'étant un surnom, j'ai pensé qu'il devoit être conservé tel qu'il étoit dans la langue originale.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+Pandémos étoit représentée* assise sur un bouc à Elis sur la balustrade de la piece de terre, attenant le temple de la Déesse, qui étoit près de la Place publique. Cette Statue, ouvrage de Scopas, étoit de bronze, ainsi que le bouc. Cette maniere de la représenter la fit nommer Epitragia. Cet emblême fait assez voir qu'on donnoit à Elis une autre signification du surnom de Pandémos. On pourroit alors le rendre par le terme de _volgivaga_. Solon* lui avoit fait bâtir à Athenes un temple de l'imposition qu'il avoit mise sur les femmes qu'il avoit achetées et placées dans des lieux de prostitution, à cause des* jeunes gens. Car la Déesse, ajoute Eustathe, à qui je dois ce trait historique, se plaît aux courtisannes qui lui apportent de l'or. Nicandre de Colophon raconte le même fait, au troisieme Livre* de son Histoire de Colophon.
+
+*) Pausanias Eliacorum Poster. sive, lib. 6. cap. 25. pag. 516.
+
+*) Eustath. commentar. ad Iliad, lib. 19. vers. 282, pag. 1185. lin. 1.
+
+*) C'étoit, sans doute, pour prévenir les insultes qu'ils auroient pu faire aux femmes mariées, ou pour éviter les vices contre nature.
+
+*) Athen. Deipnosoph. lib. 13. cap. 3. pag. 569.
+
+On célébroit sa fête à Athenes le quatre du mois, comme le dit Athénée* d'après le Poëte Ménandre, dans la Comédie intitulée : _le Flatteur_.
+
+*) Idem. lib. 14. cap. 22. pag. 659 D.
+
+Elle fut encore appellée Epitragia par une autre raison. Thésée, prêt à partir* pour l'isle de Crete, se rendit à Delphinium ou Port Sacré, pour y sacrifier à Apollon. On allure que le Dieu de Delphes lui répondit de prendre Vénus pour guide, et de l'invoquer, comme la compagne de son voyage. On ajoute que pendant que Thésée sacrifioit sur le bord de la mer, une chevre fut tout-à-coup changée en bouc, et que par cette raison la Déesse fut nommée Epitragia de [GREEK] un bouc.
+
+*) Plutarch. in Theseo, pag. 7. F. 8. A.
+
+C'est sans doute à cela que fait allusion la figure de la planche 100e du premier volume de l'Antiquité Expliquée de Dom de Montfaucon, et non au récit de Pausanias, comme le croyoit ce Religieux ; mais je me suis apperçu, que quoique sçavant, il étoit souvent inexact, et l'Académie peut vérifier que ma nomenclature des différentes Vénus, est cent fois plus nombreuse que la sienne. Quoi qu'il en soit, la figure en question représente la Déesse sur les flots, étendue sur une chevre qu'elle tient par la barbe. Elle est accompagnée de Néréides et de Cupidons montés sur des dauphins ; on y voit aussi des tritons, des chevaux marins, _etc._
+
+Il y avoit à Thebes en Béotie* une Statue de Vénus-Pandémos, que les Thébains assuroient avoir été faite des éperons des navires qui avoient amené Cadmus en Grece. C'étoit une offrande d'Harmonie, sa fille, qui voulut par-là indiquer les plaisirs des deux sexes. Si Pausanias ne s'en est point laissé imposer par les Thébains, c'étoit la plus ancienne Statue de Vénus qu'il y eut en Grece, avec celle de Vénus-Uranie dont j'ai déjà parlé, et celle de Vénus-Apostrophia dont je dirai deux mots dans la suite.
+
+Si l'on orna Vénus-Uranie des vertus des femmes honnêtes, on distingua Pandémos par les vices des courtisannes. La pudeur étoit dans les temps anciens le plus bel ornement des femmes. Sûres de l'effet de leurs charmes, elles n'avoient point recours à l'art pour les relever. Elles laissoient aux courtisannes les miroirs, les parfums et tout l'attirail de la toilette. Ce fut sur ce modele que fut formée Uranie. Mais bien-tôt les mœurs antiques dégénérerent et perdirent de leur éclat. Si Uranie conserva encore des adorateurs, on dressa par tout des autels à Pandémos, à Porné, à Etæra, _etc._ Bien éloignée de la chaste Pallas, qui se baignoit et ne se parfumoit pas, cette Vénus aimoit les parfums. Celui dont elle relevoit sa beauté, s'appelloit par excellence [GREEK], _Beauté_. Elle s'en parfumoit* lorsqu'elle alloit danser avec les Graces. Les vases où se mettoit ce parfum se nommoient [GREEK]* ; _où sont les boëtes à parfum de Vénus_ ? Elle prennoit plaisir à se regarder dans le miroir, comme on le voit dans les Cretois de Sophocle.* Aussi les Anciens la représentent-ils souvent avec un miroir. _Alius* sub oculis Dominæ (Veneris) speculum prægerit_. Elle avoit un soin particulier de sa chevelure, et se servoit à cet effet d'un peigne d'or.*
+
+*) Pausanias Bœotic. sive, lib. 9. cap. 16. pag. 742.
+
+*) Homeri Odyss. lib. 18. vers. 191.
+
+*) Anthologia Græca, lib. 1. cap. 70. pag. 98.
+
+*) Athen. Deipnosophist. lib. 15. pag. 687. C.
+
+*) Apul. Metamorphos. lib. 4. pag. 136. lin. 3.
+
+*) Apollonius Rhodius, lib. 3. fol. 50. in aversâ parte.
+
 ...
