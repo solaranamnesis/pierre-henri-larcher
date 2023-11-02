@@ -844,4 +844,245 @@ Si l'on orna Vénus-Uranie des vertus des femmes honnêtes, on distingua Pandém
 
 *) Apollonius Rhodius, lib. 3. fol. 50. in aversâ parte.
 
+A Mégalopolis en Arcadie* on voyoit encore du temps de Pausanias la partie antérieure d'un temple de Vénus avec trois Statues de la Déesse, dont l'une étoit de Pandémos, et une autre sans aucun surnom. J'ai parlé de la premiere, pag. 66.
+
+*) Pausanias Arcadic. sive, lib. 8. cap. 32. pag. 666.
+
+Vénus, dit Eustathe,* fut surnommée Etæra ou Courtisanne, parce qu'elle se plaisoit aux courtisannes qui lui apportoient de l'or. On pourroit croire d'après un passage de Clément d'Alexandrie,* qu'elle n'étoit adorée sous ce nom qu'à Athenes. Mais Philetærus* nous apprend dans la Piece, qui a pour titre Corinthiastès ou Scortator : (car on disoit [GREEK] pour Scortari, selon Hésychius) qu'elle avoit sous ce nom des temples par-tout, tandis qu'elle n'en avoit en aucun lieu de la Grece sous, celui d'Épouse. Hésychius parle aussi du temple de Vénus-Etæra à Athenes, au mot [GREEK].
+
+*) Eustath. ad Homeri Iliad. lib. 19. vers. 282. pag. 1185. lin. 1.
+
+*) Clemens Alexandrin. in Protreptico, pag. 33. lin. 17.
+
+*) Athen. Deipnosophist. lib. 13. cap. 1. pag. 559. A.
+
+Il y avoit à Abyde* un temple consacré à Vénus Courtisanne à l'occasion que je vais dire. La ville étoit réduite en esclavage, et les citoyens contenus par des Troupes. Les foîdats s'étant enivrés un jour de fête, et ayant pris avec eux un grand nombre de courtifannes, ils s'endormirent. Une de ces courtifannes prit les clefs ( de la ville, pafla pardefliis le mur, et étant allé avertir les Abydéniens, ceux-ci entrèrent auiïï tôt en armes, tuèrent les fentinelles, fe rendirent maîtres du mur, et ayant recouvré leur liberté, ils élevèrent un temple à Vénus-Porné, par reconnoifïànce pour Taetion de la courtifanne.
+
+*) Id. lib. 13. cap. 4. pag. 572. E.
+
+Il y avoit à Ephèse un temple de Vénus Courtisanne, comme le dit Evalcès* dans son Histoire de cette ville. Mais j'ignore en quelle occasion il fut élevé.
+
+Nous ne sommes pas plus instruits de Mucheia, autre surnom de Vénus, dont nous devons la connoissance à Suidas. Je soupçonne que [GREEK], signifiant un lieu retiré, on a donné l'épithete de [GREEK] à la Déesse, parce qu'elle célèbre ses Mysteres les plus secrets dans des lieux écartés. Ce n'est point une conjecture. Mon explication est vraie, et le peuple entier d'Athenes la garantit telle. Lorsqu'à l'occasion de Timarque,* on venoit à parler dans l'Assemblée du Peuple de lieux écartés, détournés, ils rappelloient à ce Peuple l'idée des crimes qu'y commettoit cet homme infame.
+
+*) Idem ibidem. pag. 573. A.
+
+*) Æschinis Oratio adversus Timarchum, pag. 11 et 12. edit. Stephani.
+
+La signification de Vénus-Castnia est douteuse. Guillaume Canter faisoit venir ce mot de Castnium, montagne de Pamphilie, dont parle Etienne de Byzance au mot [GREEK]. Mais il auroit dû prouver aussi que Vénus étoit adorée en ce lieu. Le Scholiaste de Lycophron* l'explique par _impudique_, et s'apuie sur ce qu'une femme surprise avec son amant, se disculpe en disant que c'est son frere ou son parent. Canter, dans sa note sur ce passage, trouvoit cette raison absurde. Mais il ne faisoit pas attention que ce mot peut venir de [GREEK], qui signifie frere ou sœur. Callimaque parle aussi de ce surnom dans un Fragment de ses Jambes, que nous a conservé Strabon,* et qui a été omis par le dernier Éditeur, M. Ernesti. Alexander ab Alexandro donne* mal-à-propos à cette Vénus le nom de Castiniensis, et l'index de Strabon celui de Castinæa.
+
+Au promontoire Simas* sur le Pont-Euxin, il y avoit une Statue de Vénus Courtisanne. On assuroit que ce lieu avoit été habité par une belle femme, nommée Sima, qui accordoit ses faveurs pour de l'argent, à ceux qui naviguoient de ce côté.
+
+*) Sur le vers 403. de l'Alexandra de Lycophron.
+
+*) Strabo, lib. 9. pag. 669. A.
+
+*) Alexander ab Alexandro Genial. Dierum, lib. 3, tom. 1. pag. 696.
+
+*) Excerpta ex Dionysii Byzantii Anaplo Bospori Thracii, pag. 15.
+
+Vénus Peribasia ou Divaricatrix* étoit adorée chez les Argiens, selon Clément d'Alexandrie, et fut ainsi nommée _à Divaricandis cruribus_. On trouve dans Hésychius [GREEK]. Peribaso, Vénus.
+
+*) Clemens Alexandrin. in Protreptico, pag. 33. lin. 17.
+
+On la nommoit aussi Salacia,* et c'étoit proprement la Déesse des Courtisannes ; Lubia, Lubentina,* à cause des plaisirs qu'elle procure ; car Libentia signifie les plaisirs, la volupté ; et St. Augustin dit dans la Cité de Dieu,* qu'elle a eu le nom de Libentina à _Libidine_. Elle avoit à Rome un temple sous cette dénomination, avec un bois sacré ; mais on ignore en quel quartier il étoit. Elle s'appelloit aussi Volupia* par la même raison, avec une Chapelle de ce nom dans le dixieme quartier.
+
+*) Servius ad Virgilii Æneid. liv. 1. vers. 720.
+
+*) Cicero de Naturâ Deor. liv. 2. §. 23. Servius loco laudato.
+
+*) Stus Augustinus de Civitate Dei. lib. 4. 8.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+Les gens sages, loin d'imputer à Vénus ces désordres, la prioient au contraire de détourner les hommes des passions déréglées et des unions incestueuses. Ils l'avoient surnommée Apostrophia.* On en voyoit la Statue à Thebes. C'étoit une offrande d'Harmonie, qui l'avoit fait faire des éperons des vaisseaux qui avoient amené son pere Cadmus en Grece. Cette Princesse n'ignoroit pas sans doute les crimes qu'avoir fait commettre l'Amour. Vénus Epistrophia a la même signification. On lui avoit élevé un temple à Mégares, dans la rue* qui menoit à la Citadelle.
+
+*) Pausanias Bœotic. sive, lib. 9. cap. 16. pag. 742.
+
+*) Idem Attic. sive, lib. 1. cap. 11. pag. 97.
+
+Vénus Verticordia répondoit chez les Romains à-peu-près à la Vénus Apostrophia des Grecs ; nous en parlerons ailleurs. Mais quelles que fussent ces Vénus, elles étoient, chez les Grecs, nées de Cœlus et de la mer, ou de Jupiter et de Dioné. Commençons par la fille de Cœlus.
+
+Lorsque les Grecs firent aborder Vénus en Cypre, ils voulurent sans doute parler de l'introduction de son culte en cette isle ; mais quand ils nous disent qu'elle fut engendrée de l'écume qui sortit du corps de Cœlus et tomba dans la mer, après qu'il eût été mutilé par son fils Saturne, il me semble que leurs Philosophes entendoient, sous cette allégorie, la maniere dont se produisent tous les êtres, soit qu'ils eussent eussent pris cette allégorie des Orientaux, soit qu'ils l'eussent imaginée eux-mêmes.
+
+Quelques anciens Philosophes ayant remarqué que rien ne pouvoit croître sans une certaine portion de chaleur et d'humidité, regarderent le feu et l'eau comme les deux principes de la vie. Ovide a exprimé ce systême dans ces vers :
+
+_Quippe ubi temperiem sumsêre humorque calorque,_  _Concipiunt, et ab his oriuntur cuncta duobus._  _Cumque sit ignis aquæ pugnax, vapor humidus omnes_  _Res creat, et discors concordia fœtibus apta est._  Ovid. Metamorphos. lib. 1. vers 430.
+
+Le feu contenoit le germe, _mas ignis, quod ibi semen_,* et l'eau le développoit et lui donnoit la nourriture : _aqua fæmina_.* « L'homme et tous les animaux sont composés, suivant Hippocrate,* de deux choses ennemies par leurs facultés, mais qui s'accordent par leur* mélange ; je veux dire, le feu et l'eau. Ces deux élémens, joints ensemble, se suffisent à eux-mêmes et à tout le reste. Chacun d'eux isolé n'est utile, ni à lui-même, ni à aucune autre substance. Chacun d'eux a donc cette propriété-ci : le feu peut mettre tout en mouvement dans le tout ; et l'eau nourrir tout dans le tout. »
+
+*) Varro de Linguâ Latinâ, lib. 4. pag. 18.
+
+*) Idem. ibid. Hippocrate dit aussi la même chose _de Diæta lib._ 1. §. 19.
+
+*) Hippocrat. de Diætâ, lib. 1. §. 4. pag. 182.
+
+*) C'est ce qu'Ovide appelle dans les vers cités ci-dessus ; _ubi temperiem sumsêre humorque calorque.
+
+Le passage d'Hippocrate est altéré, et je l'ai traduit, comme je conçois qu'il doit être rétabli. Ce ne sera point m'écarter du plan de l'Académie, que d'exposer les raisons qui m'ont déterminé aux changemens que j'ai faits ; la critique devant elle seule distinguer un ouvrage de cette nature, d'une compilation que tout le monde est en état de faire, sans même avoir la plus légère teinture de la langue Grecque. Voici d'abord le texte de cet Auteur, tel qu'il se trouve dans l'Edition de Van der Linden. [GREEK].* 1.° [GREEK] et [GREEK] ne s'accordent ni avec [GREEK] qui précedent, ni avec [GREEK] qui suivent. Il faut donc lire [GREEK] et [GREEK] au duel. Le Sigma à la fin des mots se confond souvent avec le Nu dans les Manuscrits. 2.° [GREEK] ne fait aucun sens. Que veut dire, _Homo constituitur ex duobus differentibus quidem facultate, concordibus vero_ usu. Hippocrate nous a mis lui-même sur la voie de rétablir la vraie leçon. Il dit plus bas, §. 18. Pag. 195. [GREEK]... « L'Ame de l'Homme ayant, comme je l'ai dit aussi auparavant, un mêlange de feu et d'eau. » Je pose en fait qu'Hippocrate ne l'a dit que dans le passage ci-dessus rapporté. Il faut donc lire ici [GREEK] ioniquement pour [GREEK]. Les Copistes ne se doutant point que [GREEK] fût un Ionisme, et ne croyant pas même ce terme grec, l'ont changé en [GREEK].
+
+*) Hippocrat de Diætâ, lib. 1. §. 4. pag. 182.
+
+Mais revenons à notre explication. C'est par une suite de ces principes que quelques anciens Philosophes avoient imaginé « qu'une semence* ignée étoit tombée du Ciel dans la mer, et que Vénus étoit née de l'écume, par la combinaison du feu et de l'eau : _de cœlo semen igneum cecidisse dicunt in mare, ac natam e spumis Venerem conjunctione ignis et humoris._ » C'est, dis-je, l'union de ces deux élémens qui a produit tout, et c'est ce que vouloient nous représenter les Anciens, sous l'emblême de la naissance de Vénus. _Causa nascendi duplex_, dit Varron.* _Ignis et aqua... mas ignis, quod ibi semen ; aqua femina, quod fetus ab ejus humore et eorum vinctione sumit Venus_. De-là l'épithete de _Victrix_ donnée à cette Déesse dans un sens différent de celui où nous le verrons plus bas, représente cette union, cette combinaison, _non quod vincere velit_, comme le dit* le plus savant des Romains, _sed quod vincire et vinciri ipsa_. Car _Victoria_, selon le même,* vient de ce qu'on lioit les vaincus : _Victoria, ab eo quod superati vinciuntur_.
+
+*) Varro de Linguâ Latinâ, lib. 4. pag. 18.
+
+*) Idem ibid.
+
+*) Idem ibid.
+
+*) Idem ibidem.
+
+La théologie des Anciens renferme, sous des allégories ingénieuses, le débrouillement du cahos et la formation de l'univers, comme on s'en convaincra, en lisant attentivement la vie d'Homere, attribuée à Denys d'Halicarnasse, qui se trouve parmi les Opuscules Mythologiques donnés par Thomas Gale. Les yeux du vulgaire ne pouvoient percer ce voile ; mais ceux du Savant n'en étoient point arrêtés. Ces allégories animent toute la nature, elles font le charme de la poésie. Un Poëte Physicien eut mis en beaux vers l'explication de Varron et le systême des Anciens sur la génération. Mais un Poëte, dont l'imagination vive et fleurie n'aime à présenter que des images riantes, préférera l'allégorie ; et c'est ce qu'a fait Hésiode, lorsqu'il nous peint Cœlus mutilé par Saturne,* et Vénus devant le jour, à la liqueur prolifique que la mer avoit reçue dans son sein. Phurnutus avoit entrevu cette explication de Varron, ou plutôt il suivoit l'opinion de Thalès,* qui soutenoit que l'eau est le Principe de tout. « Il est vraisemblable,* dit il, que la tradition ne nous a transmis que Vénus étoit née dans la mer, que parce qu'il faut à la cause qui engendre tout, du mouvement* et de l'humidité, deux choses dont la mer se trouve abondamment pourvue. »
+
+*) M. l'Abbé Bergier traduit [GREEK] _il jetta incontinent_ [Page 107 de sa traduction d'Hésiode.], et de crainte qu'un Lecteur indulgent ne crût que c'etoit une faute d'Imprimeur, il nous avertit dans ses Remarques [Origine des Dieux du Paganisme. Tome 2. page 83.] que [GREEK], _semble ici un adverbe de temps_, comme le latin _continuò_ incontinent. On voit qu'il a traduit d'après l'ancienne et mauvaise version latine. [GREEK] signifie le continent par opposition aux isles.
+
+*) Diogen Laert. lib. 1. segm 27. Thales Milesius... aquam dixit esse initium rerum. Cicero de Naturâ Deorum, lib. 1. § 10.
+
+*) Phurnutus de Naturâ Deorum, cap. 24. p. 196.
+
+*) Il paroît que c'est à raison de ce mouvement que le feu étoit regardé comme ayant la vertu de tout engendrer. Voyez le passage d'Hippocrate ci-dessus rapporté.
+
+L'explication de Varron est confirmée par l'usage où étoient les Romains de recevoir leurs femmes avec le feu et l'eau : _Aquâ et igni mariti uxores accipiebant_. C'est ce que nous apprend le même Varron sur le vers 167 du quatrieme livre de l'Enéïde de Virgile. Servius, qui nous a conservé ce passage dans ses Commentaires sur ce Poëte, ajoute que de son tems, on portoit encore des flambeaux allumés devant les mariés, et qu'un jeune garçon, ou une jeune fille tenoit aussi de l'eau puisée dans une fontaine d'une onde pure, dont on lavoit ensuite les pieds aux mariés. C'est ainsi que se célèbrent les Noces de Jason et de Médée :
+
+_Inde ubi sacrificas cum conjuge venit ad aras_  
+_Æsonides, unâque adeunt, pariter que precari_  
+_Incipiunt, ignem Pollux undam que jugalem_  
+_Prætulit, ut dextrum pariter vertantur in orbem_.*
+
+*) Valerius Flaccus Argonautic. lib. 8. 5. 243.
+
+Stace décrit les mêmes rits dans l'Epithalame de Stella et de Violantille.
+
+_Procul ecce canoro_  _Demigrant Helicone Deæ, quatiunt que novenâ_  
+_Lampade solennem thalamis coeuntibus ignem,_  
+_Et de Pieriis vocalem fontibus undam_.*
+
+*) Stat. Sylv. lib. 1. Sylv. 2. vers. 3.
+
+Et c'est par allusion à cette coutume qu'Enée épouse Didon, et que Pluton enleve Proserpine au milieu des éclairs et des orages :
+
+_Nimbis Hymenæus hiulcis_  
+_Intonat, et testes firmant connubia flammæ._*
+
+*) Claudianus de Raptu Proserpinæ, lib. 2. v. 230.
+
+Les Romains avoient pris cette coutume des Grecs. Thucydide* remarque que les Athéniens faisoient usage de l'eau de la Fontaine Enneacroune avant leurs noces. Cela est confirmé par Suidas, qui ajoute qu'un jeune garçon, le plus proche parent de l'époux, alloit chercher cette eau le jour même des noces. On représentoit sur le tombeau des célibataires, un enfant tenant une cruche ; remarque curieuse qui se trouve dans Suidas au mot [GREEK], et qui est appuyée du témoignage de Démosthene dans son Plaidoyer* contre Leocharès : « Archiades, dit-il, tomba malade, et mourut en l'absence de Midylides, sans avoir été marié. Quelle en est la preuve ? L'enfant qu'on voit une cruche à la main sur son tombeau. »
+
+*) Thucydid. Hist. lib. 2. §. 15. pag. 108.
+
+*) Demosth. pag. 1044. E. ex edit. Wolfii.
+
+N'oublions pas non plus qu'on représentoit Vénus tenant un flambeau :
+
+_Contectam myrto Venerem veneratur Aprilis._  
+...  
+_Cereus et dextrâ flammas diffundit odoras.*_
+
+*) Anthologia Latina, lib. 5. Epigram. 75. tom. 2.
+
+Sa naissance de l'écume lui fit donner en grec le nom d'Aphrodite [GREEK]. Car, comme le remarque Eustathe* dans ses Commentaires sur Homere, l'upsilon se change en iota, de même que de [GREEK] vient l'adverbe [GREEK], de [GREEK], de [GREEK] _etc._ Denys le Grammairien en prend occasion de l'appeller [GREEK] _née de l'écume_, dans un Epithalame dont Theodorus Prodromus nous a conservé un fragment in _Amaranto,* sive Senili Amore_. Hésiode lui avoit* aussi donné le même nom et par la même raison. Mais M. Van Lennep prétend dans ses Remarques sur Coluthus, pag. 94, que cette épithete n'étoit pas connue de ce Poëte, et par conséquent, que le vers où elle se trouvoit, n'étoit pas de lui. Il se fonde sur ce qu'elle n'est point dans Homere, qui étoit antérieur à Hésiode, ou du moins son contemporain ; comme si Homere avoit fait mention de tous les surnoms et épithetes de Vénus connus de son tems.
+
+*) Eustath. Commentar. in Homeri Iliad. lib. 3. pag. 413. lin. 11.
+
+*) A la suite des Amours de Rhodante et de Dosiclès, pag. 458. edit. Gaulinini.
+
+*) Hesiodi Theogonia, vers 196.
+
+Euripide donnoit à Aphrodite une autre étymologie, assortie à la gravité de son caractere et à la sagesse de ses mœurs. Il dérivoit ce terme d'[GREEK]* _folie_, parce que la passion qu'inspire cette Déesse est la cause de toutes les folies des hommes. Aristote* étoit de même avis dans sa Rhétorique, puisqu'il dit qu'elle étoit l'origine de la folie : [GREEK]. Quoi-qu'on pense de ces explications, ce terme avoir donné naissance à [GREEK] dont parle Sophocle dans la Piece intitulée _Danaë_, au rapport d'Hésychius et d'Eustathe, dans ses Commentaires sur Homere, pag. 1183, ligne 19, pour signifier des perdrix et des pourceaux, animaux très-lascifs. L'Aphron,* petit poisson de mer qu'on nommoit aussi Aphrya ou Aphya, étoit censé chéri de Vénus, à cause de ce vain rapport de nom. Il y avoit aussi un coquillage que les pêcheurs appelloient, selon Hésychius,* _Oreille de Vénus_. Il seroit très-facile de grossi le nombre de ces exemples ; mais je ne veux point compiler des livres qui sont entre les mains de tout le monde.
+
+*) Euripides in Troadibus, vers. 989.
+
+*) Eustath. Commentar. in Homeri Iliad. lib. 3. pag. 414. lin. 37.
+
+*) Athen. Deipnosophist. lib. 7. cap. 21. pag. 325. B.
+
+*) Hesychius Voc. [GREEK].
+
+Pour peu qu'on soit initié dans la Mythologie des Grecs, on doit s'apperce-voir du peu d'accord de leurs Légendes. Suivant une autre tradition, Vénus n'aborda pas à l'isle de Cypre tout de suite après sa naissance, elle demeura même assez long-tems dans la mer, et n'en sortit que pour monter au ciel. Pendant son séjour dans cet élément, elle vécut* avec Néritès, en fit son ami, et se divertit beaucoup avec lui. Ce Néritès étoit fils de Nérée et de Doris, fille de l'Océan. Il étoit plus beau que les hommes, et même que les Dieux. Lorsque fut arrivé le tems prescrit par les destins où Vénus devoit prendre place parmi les Dieux, j'ai oui dire, continue Elien, qu'en montant au ciel, elle voulut emmener avec elle son compagnon de jeu ; mais qu'il ne voulut pas la suivre, et qu'il préféra la compagnie de ses parens et de ses sœurs au séjour de l'Olympe. Vénus lui avoit offert aussi des aîles ; mais ayant rejetté cette faveur, la Déesse indignée le changea en un coquillage de même nom, et prit, pour l'accompagner au ciel, Eros (l'Amour), jeune et beau, ainsi que Néritès, et lui donna les aîles qu'elle avoit destinées à celui-ci. Elien rapporte encore dans le même chapitre une autre tradition sur ce Néritès ; mais comme elle n'a aucun trait à Vénus, je ne crois point devoir en parler. L'Auteur de l'_Etymologicum Magnum_ l'appelle _Anéritès_,* et nous apprend que ce nom vient de Nérée, Dieu Marin. Il se nomme ainsi, ajoute-t-il d'après Hérodien, non point par un pléonasme, mais par une paragoge, c'est-à-dire, une extension de nom.
+
+*) Ælian. de Naturâ Animal. lib. 14. cap. 28. pag. 811.
+
+*) Etymologic. Magn. Voc. [GREEK].
+
+J'ai fait mention un peu plus haut de la naissance de Vénus dans la mer. Hésiode est le premier Poëte qui l'ait décrite. Après avoir raconté l'attentat de Saturne contre son pere Uranus, que feu M. le Comte de Caylus* attribuoit mal-à-propos à Jupiter, il parle en ces termes de la maniere dont elle naquit. « Une écume* blanche sortie du corps immortel produisit une jeune fille, qui portée d'abord à l'isle de Cythere, se rendit ensuite à celle de Cypre, où aborda cette aimable Déesse. »
+
+*) Mémoires de l'Académie des Belles-Lettres, tom. 30. pag. 448. La plupart des Ecrivains qui ont parlé de la Mythologie sont d'accord là-dessus. Arnobe (adversus Gentes, lib. 5. pag. 143.) a dit : _numquid ex pelagi spumâ et ex Cœli genitalibus amputatis Cythereiæ Veneris concretum coaluisse candorem ?_
+
+J'ai prouvé ci-dessus que cette fiction étoit une allégorie sous laquelle les Philosophes Orientaux avoient voilé leur systême sur l'origine du monde. Je ne dois pas omettre cependant l'explication qu'en donne Fulgentius, quoiqu'elle soit moins sûre. _Illud nihilo minus ostendere volens poetica vanitas quod Saturnus græcè [GREEK] dicitur ; [GREEK] enim græcè tempus vocatur. Abcisæ ergo vires temporis, id est, fructus falce quam maximè, atque in humoribus viscerum, velut in mare projectæ, libidinem gignant necesse est. Saturitatis enim abundantia libidinem creat_.* Quoi qu'il en soit de cette explication, cette description donna occasion aux plus habiles Artistes de la Grece de représenter à l'envi les uns des autres la Déesse sortant de la mer. M. le Comte de Caylus pensoit qu'Apelle* étoit le premier qui l'eut fait. Cependant nous avons une Ode d'Anacréon* sui un disque où elle étoit ainsi représentée. Il est vrai que Tannegui le Febvre ne croyoit pas cette Ode l'ouvrage d'Anacréon ; mais il manquoit à ce critique savant et ingénieux, d'avoir sacrifié aux Graces. Elle est certainement marquée au coin de ce Poëte aimable, et tous les Ecrivains l'ont reconnue pour être de lui. Vénus étoit ciselée sur ce disque, et non point peinte, comme l'avance Mde Dacier. C'étoit un chef-d'œuvre, et l'Artiste qui l'avoit exécuté étoit sans doute inspiré, pour me servir de l'expression d'Anacréon. On voyoit sur ce disque la mer, Vénus au milieu ; mais les flots couvroient ce que la pudeur ne permet pas de montrer. La Déesse paroît fendre les ondes avec ses belles épaules, et brille comme un lys parmi des violettes. Autour d'elle sont des Dauphins et une infinité d'autres poissons qui sautent de joie. Elle prend beaucoup de plaisir à leurs divertissemens.
+
+*) Hesiodi Theogonia, vers 191.
+
+*) Fulgent Mythologicon, lib. 2. pag. 669.
+
+*) Mémoires de l'Académie des Inscriptions et Belles-Lettres, tome 30. pag. 448.
+
+*) Anacreont. Od. 51.
+
+On représentoit aussi la Déesse portée sur une conque ; ce qui a donné occasion à Properce de dire :
+
+_Et venit Rubro concha Erycina salo._*
+
+*) Propertii lib. 3. Eleg. 13. vers. 6.
+
+et à Martial :
+
+_Lævior, ô conchis, Galle, Cytheriacis._
+
+On peut consulter les figures de l'Antiquité Expliquée par Dom de Montfaucon.
+
+Mais passons à la Vénus d'Apelle. Il y avoit, dit Strabon,* dans le fauxbourg de Cos, patrie d'Hippocrate, un Temple d'Esculape, orné de riches offrandes, et entr'autres d'un tableau d'Apelle, représentant Vénus Anadyomene, ou sortant de la mer. On assure, ajoute ce Géographe, qu'on fit aux habitans de Cos, pour cette Vénus, une remise de cent talens sur le tribut qu'ils payoient. Ce tableau passa à Rome, et fut dédié au Dieu César par Auguste, parce qu'il regardoit la Déesse comme l'Auteur de sa race. Pline remarque aussi* qu'il fut consacré dans le Temple de Jules César, qui étoit sur le _Forum Cæsaris_ c'est-à-dire, dans le huitieme quartier de Rome. _Venerem exeuntem mari Divus Augustus dicavit in delubro Patris Cæsaris, quæ Anadyomene vocatur_.
+
+Des Auteurs prétendent que Campaspé,* maîtresse d'Alexandre, servit de modele. Ce Prince s'étant apperçu de l'amour du Peintre, la lui céda généreusement. D'autres disent* qu'Apelle représenta Phryné. Cette Courtisanne se dépouilla de ses habits, et ayant détaché sa chevelure, elle se baigna dans la mer, à la vue de tous les Grecs que la Fête de Neptune avoit attirés à Eleusis. Apelle la peignit en cet état. C'est ce tableau qui donna dans la suite occasion à Ovide de dire :
+
+*) Martial. lib. 2. Epigram. 47.
+
+*) Strabo lib. 14. pag. 971. C. 972. A.
+
+*) Plin. Histor. Natural. lib. 35. cap. 10. tom. 2. pag. 696.
+
+*) Idem ibidem.
+
+*) Athen. Deipnosoph. lib. 13. c. 6. p. 590. F.
+
+_Si Venerem Cous nusquam posuisset Apelles,_  
+_Mersa sub æquoreis illa lateret aquis._
+
+*) Ovid. Ars Amator. lib. 3. vers. 401.
+
+Auguste, comme je l'ai remarqué d'après Strabon, consacra ce tableau* dans le temple de César son pere. Mais la partie inférieure du tableau s'étant gâtée, on ne trouva aucun Peintre capable de la réparer. Ce malheur tourna à la gloire de l'Artiste. Ce tableau tomba de vétusté. Néron y en substitua un autre de la main de Dorothée. François Junius l'a oublié dans son Catalogue des Peintres Anciens.
+
+*) Plin. Histor. Natural. lib. 35. cap. 10. tom. 2. pag. 696. lin. 31.
+
+Pline paroît mettre au-dessus de ce chef-d'œuvre les vers grecs qui l'ont célébré ; mais l'ingénieux Comte de Caylus croit avec raison,* ce me semble, qu'il faut lire dans cet Auteur : _Versibus græcis tali opere, dum laudatur, non victo sed illustrato_, au lieu de _victo_. La particule négative aura échappé aux Copistes. Ces vers dont nous parle Pline, sont probablement ces Épigrammes qu'on lit dans l'Anthologie, livre 4. chap. 12. page 326 de l'édition toute grecque d'Henri Estienne, et qui véritablement sont fort belles. M. le Comte de Caylus en a donné une traduction dans son Mémoire ; on peut la consulter, ainsi que les remarques de goût dont il a accompagné la descriprion du tableau d'Apelle. Mais je crois devoir me borner à l'historique, selon le plan qui m'a été tracé par l'Académie, et J'ai tâché d'être le plus abondant possible dans cette partie, qui a été à-peine effleurée par ce célèbre Académicien.
+
+*) Mémoires de l'Académie des Belles-Lettres, tom. 30. pag. 443.
+
+Apelle* avoit commencé une autre Vénus pour les habitans de Cos ; mais elle resta imparfaite à sa mort ; la beauté du visage fit perdre aux autres Peintres l'envie de l'achever.
+
+*) Plin. ibid. p. 697. Cicero de Officiis l. 3. §. 2.
+
+Venus Anadyomene est représentée dans l'Antiquité Expliquée de Dom de Montfaucon, tome 1. pl. 99, sortant de la mer et exprimant l'eau de ses beaux cheveux. On pourroit croire que c'est une imitation du tableau d'Apelle, ou du moins, d'une copie de ce tableau. C'est ainsi que le décrit Antipater de Sidon, qui vivant avant qu'on l'eut transporté à Rome, pouvoit l'avoir vu. « Voyez* Vénus sortant du sein de la mer qui vient de lui donner le jour ; c'est l'ouvrage du pinceau d'Apelle. Voyez comme elle saisit de ses belles mains sa chevelure toute trempée, et comme elle en exprime l'écume. Minerve et Junon disent actuellement elles-mêmes : _Vénus, nous ne vous disputons plus le prix de la beauté._ »
+
+*) Anthologia Græca, lib. 4. cap. 12. pag. 326. J'ai suivi dans la premiere ligne la traduction de feû M. le Comte de Caylus ; je m'en suis écarté dans le reste.
+
+Dans un marbre* de la maison Mathéi à Rome, la Déesse est soutenue sur une coquille par deux Tritons qui semblent épris d'admiration, dit Dom de Montfaucon ; je dirois plutôt d'amour ; car cette passion est peinte sur leurs visages. Elle exprime aussi l'eau de ses cheveux comme dans la figure précédente. On la voit dans la planche 100. environnée de Néréïdes, de Tritons, de Chevaux Marins _etc._ Cela me rappelle ces vers du _Pervigilium Veneris_ :
+
+*) Antiquité Expliquée. Tom. 1. planche 99.
+
+_Tunc cruore de superno ac_  
+_Spumeo pontus globo_  
+_Cærulas inter catervas,_  
+_Inter et bipedes equos_  
+_Fecit undantem Dionen_  
+_In marinis fluctibus._
+
+On la représentoit aussi portée sur le cou d'un Triton, comme le dit Nonnus au premier livre des Dionysiaques, vers 59 ; mais comme les Mythologues ne s'accordent pas toujours entr'eux, ni avec eux-mêmes, ce Poëte* la décrit encore assise sur le dos d'un Dauphin.
+
+*) Nonnus Dionysiacorum, lib. 13. vers. 443.
+
+Il est inutile de parler des autres figures de Vénus Anadyomene qu'on trouve dans l'Antiquité Expliquée et ailleurs. Ce seroit grossir ce Mémoire de choses qui ne donneroient que la peine de les copier. Mais je ne dois pas omettre que sur la base du Trône de Jupiter à Olympie, il y avoit une* Vénus qui étoit, au sortir de la mer, reçue par l'Amour et couronnée par Pitho, la Déesse de la persuasion.
+Les Athéniens sont peut-être les premiers qui aient représenté Vénus avec cette Déesse. Consultez ci-dessus, _page 78_, ce que j'ai dit sur cette allégorie.
+
+*) Pausanias Eliacorum prior. sive lib. 5. cap. 11. pag. 403.
+
 ...
