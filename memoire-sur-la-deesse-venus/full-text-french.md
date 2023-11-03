@@ -1085,4 +1085,268 @@ Les Athéniens sont peut-être les premiers qui aient représenté Vénus avec c
 
 *) Pausanias Eliacorum prior. sive lib. 5. cap. 11. pag. 403.
 
+Dans le Temple de Neptune à Corinthe, l'on voyoit ce Dieu* sur un char avec Amphitrite. La Base, qui soutenoit ce char, étoit ornée de bas-reliefs, parmi lesquels étoit une Vénus encore enfant, sortant de la mer, et environnée de Néréides. C'étoit un présent d'Hérode Atticus.
+
+Je crois devoir encore ajouter que la célébrité du tableau d'Apelle avoit donné occasion aux Ecrivains postérieurs de comparer à cette Vénus les belles personnes dont ils vouloient faire l'éloge. Ainsi Chariton d'Aprodisium,* voulant louer Callirrhoë qui arivoit par mer à Syracuses, la compare à Vénus Anadyomene. Ainsi, dans les Lettres d'Aristénete, le Pêcheur qui gardoit les habits d'une jeune fille qui se baignoit dans la mer, fait usage* de la même comparaison.
+
+Cette Déesse étant née de la mer, il étoit naturel qu'elle présidât à cet élément. C'étoit sans doute cette raison qui avoit déterminé à lui élever tant de Temples sur les bords de la mer. On en voyoit un à Patres en Achaïe,* près du Théâtre, avec la statue de la Déesse en marbre blanc. Il y en avoit un autre dans la même Ville,* près du Port et du Temple de Neptune, avec deux statues, dont l'une avoit été tirée de la mer, avec un filet, avant le siécle de Pausanias. Tout contre le port étoit une piece de terre consacrée à la Déesse, avec une Statue, dont la tête et l'extrémité des pieds et des mains étoient de marbre, et le reste de bois. Sur le bord de la mer il y avoit un bois avec une Chapelle de la Déesse, et sa Statue en marbre. On lit dans l'Anthologie, non encore imprimée, une Epigramme, où un certain Aëximénès dédie à Vénus une belle Statue, pour qu'elle soit la gardienne de la navigation.
+
+*) Idem Corinthiac. sive lib. 2. cap. 1. pag. 113.
+
+*) Chariton. de Chæreâ et Callirrhoë Amor. lib. 8. pag. 140.
+
+*) Aristæneti Epistolæ, lib. 1. Epist. 7. p. 19.
+
+Après Nicopolis* et Zéphyrium sur la côte d'Egypte, entre Canope et Alexandrie, il y avoit un promontoire avec une chapelle de Vénus-Arsinoë. Le Promontoire s'appelloit Zéphyrium, si l'on doit en croire Etienne de Byzance, au mot [GREEK]. La Déesse avoit pris delà le nom de Zéphyritis. Elle est ainsi nommée dans une Epigramme de Callimaque, que nous a conservé Athénée, et qui se trouve la cinquieme dans l'édition de ce Poëte, donnée par M. Ernesti. D'ailleurs personne n'ignore ce vers de Catulle _de Comâ Berenices, vers._ 57.
+
+_Ipsa suum Zephyritis eo famulum legarat._
+
+*) Pausanias Achaic. sive l. 7. cap. 20. p. 575.
+
+*) Idem ibid. cap. 21. pag. 577.
+
+*) Idem ibidem.
+
+*) Strabo, lib. 17. pag. 1052. B.
+
+Un Capitaine de vaisseau, nommé Callicrate, avoit élevé ce Temple en son honneur, comme nous l'apprenons de Posidipe. « La Déesse, dit ce Poëte, accordera une heureuse navigation à ceux qui l'invoqueront, et même au fort de la tempête, elle _adoucira_ les flots irrités. » L'expression grecque [GREEK] _pinguefaciet mare_, peut signifier _rendra la mer douce_ ; mais elle me paroît manifestement faire allusion à cette belle découverte des Anciens qui a été renouvellée de nos jours. On fait qu'en versant de l'huile sur les flots agités, la mer redevient calme. Plutarque* se demande dans ses Questions Naturelles, pourquoi en répandant de l'huile dans la mer, elle reprend sa transparence et sa sérénité ac coutumées ? Pline avoir dit* avant lui _mare oleo tranquillari_. Cette expérience, qui s'étoit en quelque forte effacée du souvenir des hommes, a été découverte ou renouvellée en ce siécle. Elle est dûe aux soins et à la sagacité du Docteur Franklin, non moins habile Physicien que bon Citoyen, et qui, dans des occasions délicates, a soutenu et soutient encore avec fermeté les intérêts de sa Patrie contre ceux qui cherchent à l'opprimer. On assure cependant qu'un Capitaine Hollandois, surpris en pleine mer d'une violente tempête, avoit fait répandre un tonneau d'huile à l'entour de son vaisseau ; et qu'à l'instant la mer étoit devenue calme aux endroits où l'on avoit versé l'huile, tandis que le reste de la mer continuoit à être violemment agité.
+
+*) Anthologia Græca, ex editione Henrici Stephani, pag. 520.
+
+*) Plutarchi Quæstion. Natural. pag. 914. E.
+
+*) Plin. Hist. Natural. l. 2. c. 103. p. 122. lin. 6.
+
+Cette Vénus Arsinoë ressemble à Vénus Stratonicis, à Vénus Drusille, et à tant d'autres dont je parlerai dans la suite ; je veux dire que la flatterie avoir fait donner à cette Princesse le surnom de Vénus, et qu'on lui avoit par le même principe élevé un Temple.
+
+L'Empire que la Déesse avoit sur la mer lui avoit fait donner le nom de _Marina_ par Horace,* et par Nonnus ceux de* [GREEK],* [GREEK],* qui signifient la même chose. Peut-être faut-il rapporter à cette Vénus celle qui étoit surnommée Salacia ; nom qu'on donnoit aussi à Amphitrite, quoique Servius prétende, comme je l'ai remarqué,* que sous cette dénomination, elle étoit proprement la Déesse des Courtisannes. On peut joindre à ces Vénus celle dont il est fait mention dans une Inscription de Réinésius* _Veneri Pelag_. Ce Sçavant la croyoit la même que Vénus Anadyomene. Cependant Artémidore les distingue très-bien. Lorsqu'Anadyomene, dit-il,* est vue en songe par un Pilote, ou par des Matelots, ou par des Navigateurs, ou par quelqu'un qui veut entreprendre un voyage par mer, elle leur présage une heureuse navigation ; mais Vénus Pélagia annonce des tempêtes et des naufrages ; cependant elle conserve ceux à qui elle a apparu en songe.
+
+*) Horat. Carm. lib. 3. od. 26.
+
+*) Nonnus Dionysiacorum, lib. 6. vers. 308.
+
+*) Idem lib. 34. vers. 53. et passim.
+
+*) Idem lib. 43. vers. 423.
+
+*) Page 86.
+
+*) Reinesius Inscript. 93. Classis 1. pag. 127.
+
+*) Artemidor. Oneirocritic. lib. 2. cap. 42.
+
+Il ne sera pas hors de propos de rapporter une historiette qui prouve l'empire que l'on croyoit qu'elle exerçoit sur cet élément. Hérostrate citoyen de Naucrate, acheta à Paphos* une petite Statue ancienne de Vénus. Ses affaires terminées, il retourna à Naucrate. Lorsqu'il fut près des côtes d'Egypte, il fut acueilli d'une tempête qui mit le vaisseau à deux doigts de sa perte. Les passagers et les Matelots se réfugierent auprès de la Statue de la Déesse. A l'instant il parut beaucoup de myrtes, qui répandirent une odeur agréable, et rendirent l'espérance aux Matelots. Les vents s'appaiserent, le soleil reparut, et le vaisseau entra heureusement dans le port de Naucrate. Hérostrate consacra cette Statue dans le Temple de Vénus avec les myrtes, fit un festin à ses parens et à ses amis, et leur donna à chacun une couronne de myrte.
+
+*) Athen. Deipnosoph. lib. 15. cap. 6. p. 676. A.
+
+La Déesse présidoit aussi aux ports,* et étoit adorée par cette raison sous le nom de Limnesia. Elle avoit* à Hermione un Temple sous ceux de Pontia et de Limenia, c'est-à-dire, qui préside à la mer et aux ports, où étoit sa Statue en marbre blanc, qui méritoit d'être vue par sa grandeur et la beauté de l'exécution.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+*) Pausanias Corinthiac. sive lib. 2. cap. 34. pag. 193.
+
+Elle avoit dans la même Ville* un autre Temple, où alloient sacrifier les filles avant leurs noces, et les veuves qui vouloient se remarier. Peu loin de cette Ville, il y en avoit encore un autre connu sous le nom de Vénus Nympha (jeune mariée). Thésée* le fit bâtir lorsqu'il épousa Hélene. Hésychius parle aussi d'une Vénus Epipontia, mais sans nous apprendre en quel pays elle étoit adorée.
+
+*) Idem ibid.
+
+*) Idem Corinthiac. sive lib. 2. c. 32. p. 188.
+
+Il y avoit sur le bord de la mer une Statue de Vénus, le visage tourné du côté de la mer. Anyte l'a célébrée par cette Inscription : « Ce* lieu est consacré à Vénus, puisqu'elle se plaît toujours à voir la mer de dessus le rivage, afin de favoriser la navigation des Nautonniers. La mer, en voyant cette belle Statue, craint de s'irriter. » Je conjecture que cette statue étoit à Epidaure, dans le Péloponnese, parce qu'Anyte étoit de cette Ville, et que les femmes voyagent rarement.
+
+*) Pœtriarum octo Erinnæ, Myrus, _etc._ Fragmenta pag. 92.
+
+Il faut joindre à ces Vénus, les Vénus Acræa, ainsi nommées, parce que leurs Temples étoient bâtis sur des promontoires ; car [GREEK]* vient de [GREEK]. Junon étoit aussi connue sous ce nom, et Jupiter sous celui d'[GREEK], qui signifie la même chose, mais qui vient d'[GREEK] _summitas_.
+
+*) Eustath. in Homeri Odyss. lib. 1. tom. 3. pag. 1403. lin. 64.
+
+J'ai parlé d'un Temple de Vénus Acra?a à l'occafion du culte rendu à cette Déelîe dans llfle de Cypre. Héfychius (i) en nomme un autre à Argos. Il y en avoie un troifieme à Trœzene car Sylburge a très-bien vu qu'il falloir lire c'?tpc««4 au lieu d 5 Arxf«,/3i. Iï y en avoit un autre à (;) Cnide, et c'étoit le fécond Temple qu'a voit la Dé elfe en cette Ville. Le plus ancien Temple de la Déesse à Cnide* étoit celui de Vénus Doritis, ou plutôt, de Vénus Doris ; car je pense qu'il faut lire [GREEK] dans le passage de Pausanias ; de Vénus Doris, c'est-à-dire, Dorienne. On sait que Cnide* étoit une colonie des Lacédémoniens, qui étoient Doriens. L'Abbé Gédoyn, Traducteur de Pausanias, assure que cette Vénus est appellée Doris par Tatien ; mais cet Auteur n'en dit pas un mot.
+
+Le troisieme et dernier Temple de Vénus en cette Ville s'appelloit communément le Temple de Vénus Cnidienne ; mais les Cnidiens le nommoient eux-mêmes le Temple de Vénus Euplœa* ; c'est-à dire, de l'heureuse navigation. La Statue de la Déesse étoit l'ouvrage* de Praxitele, comme nous l'apprend Posidippe dans son Histoire de Cnide. Ce Statuaire avoit pris pour modele Cratine sa maîtresse, d'autres* disent Phryné. Cela n'a rien de surprenant. Pareille chose arrive encore de nos jours à nos Sculpteurs et à nos Peintres, lorsqu'ils ont des statues ou des portraits d'imagination à faire. Aussi Clément d'Alexandrie a tort, ce me semble, de remarquer que Praxitele* avoit fait cette Déesse ressemblante à Cratine, afin de rendre sa maîtresse l'objet de l'adoration publique. Le même Pere ajoute que tous les Peintres qui vouloient représenter Vénus, prennoient pour modele Phryné, fameuse courtisanne de Thespis, d'une grande beauté. Arnobe se contente* de copier Clément d'Alexandrie.
+
+*) Hesych. voc. [GREEK], et ibi not.
+
+*) Pausan. Corinthiac. sive lib. 2. cap. 32. pag. 187.
+
+*) Idem Attic. sive lib. 1. cap. 1. pag. 4.
+
+*) Idem Ibidem.
+
+*) Herodot. lib. 1. §. 174.
+
+*) Pausanias ibidem.
+
+*) Clemens Alexandrin. in Protreptico, tom. 1. pag. 47.
+
+*) Athen. Deipnosophist. lib. 13. cap. 6. pag. 591. A.
+
+*) Clemens Alexandrin, loco superius laudato.
+
+*) Arnobius adversus Gentes l. 6. p. 198 et 199.
+
+Praxitele avoit* fait deux Vénus, l'une vêtue et l'autre nue. Elles étoient de même prix. Il en laissa le choix aux habitans de Cos, qui donnerent par pudeur la préférence à la premiere. Ces nudités choquent les gens honnêtes, et comme l'a très-bien remarqué Arnobe,* _formatur et fingitur Venus nuda et aperta, tanquam si illam dicas publicare, divendere meritorii corporis formam_. Theodoret déclame aussi avec beaucoup de force contre ces infames Statues : on peut consulter _Serm. 3, de Diis, Angelis et Dæmonibus, pag. 50_.
+
+*) Plin. Histor. Natural lib. 36. cap. 5. tom. 2. pag. 726. lib. 7. cap. 38. tom. 1. pag. 396.
+
+La seconde fut vendue aux Cnidiens. C'est celle dont je viens de parler. C'étoit le plus bel ouvrage, je ne dis pas de Praxitele, mais qu'il y eut dans le monde entier. On venoit de toutes parts à Cnide pour la voir. Nicomede, Roi de Bithynie, offrit de payer les dettes de cette Ville, qui étoient immenses, à condition qu'on la lui céderoit. Les Cnidiens aimerent mieux s'exposer à tout, que de s'en défaire. Pline approuve leur conduite, et ajoute que cette Statue immortalisa la Ville de Cnide. La plus grande preuve que l'on puisse donner de sa beauté, dit-il au même endroit, c'est qu'on ne parloit que d'elle, quoiqu'il y eût à Cnide beaucoup d'autres belles Statues. Cette Vénus cachoit en partie de la main ce que la pudeur ne permet pas de montrer. _Læva semi reductâ manu_.* Cette attention des Statuaires Grecs persuade à M. Gori que la Vénus toute nue qu'il rapporte, planche 43, de la premiere classe du _Museum Etruscum_, est un ouvrage Etrusque.
+
+*) Arnob. adversus Gentes lib. 6. pag. 197.
+
+*) Ovid. de Arte Am. lib. 1. vers. 614.
+
+Le Temple de la Déesse est entiérement ouvert, afin qu'on puisse voir sa Statue de tous côtés. On allure qu'un jeune homme en fut tellement épris, que s'étant caché la nuit dans le Temple, il laissa sur la Statue des marques de sa lubricité, _ejus cupiditatis indicem maculam_. Clément d'Alexandrie* tranche le mot ; [GREEK] _coivit, copulatus est_. Valere Maxime raconte aussi le même trait, livre 8, chap. 11, Extern., §. 4. Lucien en parle amplement, et ne laisse rien à desirer sur cette Statue, et sur le Temple où elle étoit. On peut le consulter _in Amoribus_, §. 11, 12, _etc._ Tom. 2, pag. 408, _etc._ _In Imaginib._, §. 4, pag. 462. _Pro Imaginibus_, §. 23, pag. 503.
+
+*) Clemens Alexandrin. in Protreptico, pag. 51. lin. 5.
+
+Auprès de cette Vénus, il y avoit* des coquillages pour lesquels on avoit beaucoup de respect. C'étoient des Echénéis ou Remora, qui ont la réputation d'arrêter les vaisseaux où ils s'attachent. Périandre avoit envoyé à Crésus trois cens jeunes Corcyréens pour les rendre eunuques. Les Echénéis arrêterent le vaisseau qui les portoit. Les enfans furent sauvés, et les Cnidiens eurent depuis ce tems beaucoup de vénération pour ce coquillage. Mais Hérodote raconte d'une maniere plus vraisemblable ce trait d'histoire. Voyez, liv. 3, § 48.
+
+*) Plin. Histor. Natural. lib. 9. cap. 25. Tom. 1. pag. 514.
+
+Il y a dans l'Anthologie (édition toute grecque d'Henri Estienne, pag. 323,) sept epigrammes fort jolies sur cette Vénus de Praxitele. Dans l'une, la Déesse vient à Cnide pour voir sa Statue, et après l'avoir contemplée, elle demande où Praxitele l'avoit considérée nue. Dans une autre, Pallas et Junon s'écrient, après avoir vu cette statue : c'est à tort que nous nous plaignons de Pâris.
+
+Le même Praxitele* avoit fait une autre Statue de Vénus en bronze, qui passoit pour être aussi belle que celle de marbre, et dont la réputation étoit la même, quoiqu'il fût plus heureux à manier le marbre qu'à jetter le bronze en fonte. Elle avoit été placée devant le Temple de la Félicité, à Rome, qui avoit été élevé* sur le terrein de la Curie Hostilia, et qui par conséquent étoit dans le second quartier. Elle périt dans l'incendie de ce Temple, qui arriva sous l'Empire* de Claude.
+
+*) Idem lib. 34. cap. 8. tom. 2. pag. 653.
+
+*) Dio Cassuis lib. 44. §. 5. pag. 383.
+
+*) Plin. loco superius laudato.
+
+La position d'Ancone sur le bord de la mer indique que la Déesse, qui y étoit adorée, étoit une Vénus Marine.
+
+_Ante domum Veneris quam Dorica sustinet Ancon._  Juvenal Sat. 4. vers. 40.
+
+_Nunc ô cæruleo creata ponto_  
+_Quæ sanctum Idalium, Syros que apertos,_  
+_Quæ que Ancona..._  
+_Colis..._  
+Catullus 36, 11.
+
+Mais je ne sache aucune particularité qui rende cette Vénus recommendable. J'en dis autant de celle de Dyrrachium, autrement Epidamne, Ville commerçante sur la mer Adriatique.
+
+_Quæque Dyrrachium Hadriæ tabernam._  
+Catull. 36, 15.
+
+Vénus étoit encore appellée [GREEK]* _serena_, par rapport à l'élément auquel elle présidoit, et à la protection qu'elle accordoit aux navigateurs ; car elle étoit un Dieu tutélaire de la navigation. On peut joindre aux preuves que j'en ai déja données celle-ci : on lit dans une Epigramme de Cnæus Lentulus Gætulicus, que M. Réiske a publiée le premier dans les _Miscellanea Lipsiensia Nova_, tom. 9, pag. 102. « Vous qui présidez au rivage de la mer, Déesse, recevez ces gateaux... » Au sixieme vers de la même épigramme, le Poëte ajoute : « Cypris, qui régnez sur la couche nuptiale et sur le rivage. » De-là l'épithete de [GREEK], qui conduit les navigateurs dans le port.
+
+*) Analecta veterum Poetarum Græcorum, tom. 2. pag. 89 24. vers. 1.
+
+[GREEK].*
+
+*) Ibid. vers. 7.
+
+« Vénus qui protégez les navigateurs, et qui aimez les fêtes, conduisez-moi sain et fauf, O ma Maîtresse, dans les ports des Romains ! » C'est par cette raison qu'on la trouve souvent appellée dans les anciens monumens [GREEK] et [GREEK] Sauveur. Il est bon d'observer que Vénus n'étoit pas le seul Dieu connu, à qui l'on donnât cette épithete. Minerve étoit adorée à Athenes sous le nom de [GREEK], et l'on n'en est point surpris. Mais Proserpine l'étoit aussi dans la même Ville, sous la même dénomination. Voyez Ammonius au mot [GREEK]. Il y a aussi une Médaille dans Erizzi, pag. 159, avec cette Inscription [GREEK].
+
+A Bolos,* lieu propre à la pêche sur le Bosphore de Thrace, il y avoir un temple de Vénus Placida. On pensoit en cet endroit qu'elle donnoit des vents favorables, et qu'elle les appaisoit quand ils étoient en fureur.
+
+*) Excerpta ex Dionysii Byzantii Anaplo Bospori Thracii, pag. 8.
+
+Vénus étoit fille de Jupiter et de Dioné, suivant une autre tradition, comme nous l'avons observé plus haut. Cela n'empêcha pas ce Dieu d'en devenir épris ; mais elle sut* se soustraire à ses poursuites. La terre reçut en son sein la marque de la grande ardeur du Dieu, et enfanta les Centaures.
+
+*) Nonnus Dionysiacorum, lib. 32. vers. 71.
+
+Homere l'appelle toujours dans l'Iliade et l'Odyssée, Fille de Dioné. Théocrite dit aussi* [GREEK], respectable fille de Dioné. Ailleurs il se sert du patronymique [GREEK] : [GREEK]* Cypris fille de Dioné, et Arnobe* _Dioneia Venus proles_. Cette Dioné étoit une des Néréïdes, et petite fille de* l'Océan, et par conséquent, différente de* Dioné fille de l'Océan. Cependant le Scholiaste* d'Hésiode dit positivement que cette Dioné n'étoit point la mere de Vénus. Quoiqu'il en soit, les Poëtes prennent souvent Dioné pour Vénus elle-même
+
+_Cras Dione jura dicit_  
+_Fulta sublimi throno._*
+
+Symmaque a dit aussi : _flos siderum Dione_.*
+
+*) Theocrit. Idyll. 17. 36.
+
+*) Idem Idyll. 15. 106.
+
+*) Arnobius adversus Gentes, lib. 1. pag. 20.
+
+*) Apollodor. lib. 1. cap. 2. §. 7. cap. 3. §. 1.
+
+*) Id. Lib. 1. Cap. 1. §. 3.
+
+*) Scholiastes Hesiodi in Theogoniam, pag. 216. Basileæ. 1542. in-8°.
+
+*) Pervigilium Veneris, vers. 15.
+
+*) Symmach. lib. 1. Epist. 8.
+
+Elle épousa Vulcain, mais elle ne lui garda pas la fidélité conjugale. Elle aima des Dieux et même des hommes. On connoît ses amours avec Mars, Mercure, Boutès, Adonis, Anchise, _etc._ Ce dernier faisoit paître les bœufs sur le mont Ida. Ce qui a fait dire au second Philostrate,* que Vénus avoit aimé des Bouviers, _Bubulcorum amans_. Ce fut sans doute pour perpétuer la mémoire de cet Amour, qu'on éleva un Temple* de Vénus près du tombeau d'Anchise en Arcadie, où les Arcadiens prétendoient que ce Prince étoit mort. On n'en voyoit plus que les ruines du tems de Pausanias. L'Auteur de l'_Etymologicum Magnum_* assure cependant que cette fable avoit été imaginée, parce que [GREEK] signifie tromper. Ainsi Vénus, _qui aime les Bouviers_, ne seroit autre chose, selon cet Auteur, que Vénus la Trompeuse. Mais en voilà assez sur les Amours de la Déesse. Ces fables, dit Platon,* sont d'un trop mauvais exemple.
+
+*) Philostrat. Epist. 39. pag. 930.
+
+*) Pausan. Arcadic. sive lib. 8. 100. 12. p. 625.
+
+*) Etymologicum Magn. Voc. [GREEK].
+
+*) Plato de Republicâ lib. 3. tom. 2. pag. 390. C. Il y a dans cet Auteur : De telles choses ne me paroissent point utiles.
+
+Je passerai pareillement sous silence le filet dont l'enveloppa son mari. On sait que le Soleil découvrit ses amours à Vulcain. Cette aventure avoit exercé le pinceau des Peintres, et l'on voit dans l'Anthologie* une Epigramme sur un tableau où elle étoit représentée ; Epigramme que je vais mettre sous les yeux de l'Académie, afin de relever une bévue de Brodeau. « Le Peintre a peint Mars et Vénus s'embrassant étroitetement au milieu de leur appartement. Le Soleil entre par une porte, et stupéfait à cette vue, il ne sait quel parti prendre. Jusqu'à quand, ô Soleil, conserveras-tu ta colere ? Ne pourras-tu donc t'empêcher de la faire paroître sur la cire, toute inanimée qu'elle est ? »
+
+*) Anthologia Græca, lib. 4. cap. 12. pag. 322. ex Edit. Henr. Stephani. Voyez aussi l'édition de Brodeau, page 462.
+
+L'Auteur, quel qu'il soit, des Titres de la plupart des Epigrammes de l'Anthologie, s'est imaginé que le Poëte avoit voulu parler de statues de cire de Mars et de Vénus, et suivant cette idée, il a mis en Titre, [GREEK] sur une Statue de Mars et de Vénus. Brodeau, qui l'a suivi, interprete ces mots [GREEK] _in Cereas Martis et Veneris Imagines_. Ce Commentateur ne s'est point apperçu qu'il étoit ici question de la forte de peinture Encaustique qui se faisoit avec de la cire : _En causto pingendi duo fuisse antiquitus genera constat, cerâ et in ebore, etc._* Voyez aussi Anacréon Ode 28.
+
+*) Plin. Hist. Natural. lib. 35. cap. 2. pag. 709.
+
+Les Amours de la Déesse avec Mars me rappellent une Divinité d'un rang inférieur nommé Gigron,* qui faisoit les messages de Mars auprès de Vénus, et qui leur facilitoit les moyens de se voir.
+
+*) Eustath. Commentar. in Odyss. pag. 1599. lin. 1. pag. 1880. lin. 63.
+
+Vénus se trouva aux noces de Thétis, et lui fit présent d'une coupe d'or,* sur laquelle étoit sculpté un Amour. La Discorde, piquée d'avoir été exclue du festin, jetta au milieu des Dieux cette Pomme qui troubla leur union, et qui fut depuis si funeste aux Troyens et aux Grecs. Il y avoit écrit dessus ces mots : A LA PLUS BELLE. Junon, Pallas et Vénus se la disputerent. Jupiter les renvoya au jugement de Paris, qui adjugea la Pomme à Vénus. Suivant Ptolémée Héphæstion, ou fils d'Héphæstion, Mélus,* fils du Scamandre, étoit un jeune homme d'une grande beauté. Junon, Pallas et Vénus vouloient chacune l'avoir pour Prêtre, et se le disputoient. Paris, étant pris pour Juge, décida en faveur de Vénus. De-là vint la fable de la Pomme ; ce fruit s'appellant en Grec [GREEK].
+
+*) Ptolemæi Hephæst. lib. 6. pag. 332.
+
+*) Idem ibid. pag. 334.
+
+Malalas* donne une autre explication de ce jugement de Paris. Ce Prince, dit-il, étoit ingénieux, et cultivoit les Lettres ; il avoit composé un Panégyrique de Vénus, où il la mettoit au-dessus de toutes les Déesses, sans en excepter Junon et Minerve. Telle est l'origine, continue cet Ecrivain, de la fable qu'il avoit été nommé leur Juge, et qu'il avoit adjugé la victoire à Vénus, en lui donnant la Pomme qui en étoit le signe. Ce Prince disoit que Vénus, c'est-à-dire, le desir, engendre tout, les enfans, la sagesse, la tempérance, les arts, tout ce que l'on voit d'excellent, tant parmi les animaux doués de raison, que parmi ceux qui en sont dépourvus ; en un mot, qu'il n'y a rien de plus grand ni de meilleur que cette Déesse.
+
+*) Joannis Antiocheni cognomine Malalæ Chronographia, lib. 5. pag. 115.
+
+Il est naturel de penser que les pommes devoient être agréables à Vénus. Aussi lui étoient-elles consacrées, comme nous l'apprend le Scholiaste* d'Aristophane. Le trop crédule Artémidore* assure que lorsqu'on en voit en songe, elles présagent une jouissance. Il y avoit à Sicyone une Statue de Vénus, qui tenoit d'une main un pavot, et de l'autre une pomme. J'en ai parlé à l'Article de Vénus Uranie. _Pag. 69._
+
+Passons maintenant aux Epithetes qu'on a données à la Déesse, après quoi je reviendrai aux surnoms qu elle a eu. Je dois en effet d'autant moins omettre ces épithetes, qu'elles entrent dans le plan de l'Académie, et qu'elles peuvent servir aux Poëtes et quelquefois même aux Peintres. Je ne finirois point, si je les voulois toutes rapporter. Je me bornerai à un petit nombre, que je placerai sans ordre et sans liaison, à mesure qu'elles se présenteront à mon esprit, et comme ce sujet est très-ingrat de sa nature, j'y mêlerai de rems en tems de la critique, afin d'en compenser la sécheresse par l'utilité.
+
+*) Scholiast. Aristophan. ad Nubes vers. 993.
+
+*) Artemidor. Oneirocritic. lib. 1. cap. 85.
+
+Elle est appellée par Théocrite [GREEK],* à cause de la multitude de surnoms qu'elle a ; [GREEK], à cause de la grande quantité de Temples qu'on lui a élevés ; par Pindare* [GREEK] _argenteos pedes habens_, de même que Thétis l'est par Homere, à cause de la beauté de ses pieds ; [GREEK]* qui a les sourcils noirs, qui a de beaux yeux ; [GREEK],* aux doigts de rose, épithete qu'Homere donne aussi à l'Aurore ; [GREEK]* _abundans auro_, soit à cause de sa beauté, ou de la richesse des dons qu'on lui offroit ; [GREEK]* qui a une couronne d'or ; [GREEK] Cythérée,* parce que l'Isle de Cythere lui étoit particuliérement consacrée ; [GREEK]* née en Cypre, et [GREEK] dans Hésiode Théogonie, vers 199, et dans un fragment de Sappho conservé par Héphæstion de Metris, _pag. 40 ; [GREEK] _Risuum amans_,* qui aime les ris. Horace a dit de même : _Ridens Erycina quam jocus circumvolat_. [GREEK], suivant Hésiode,* qui fait allusion à la naissance de Vénus, _ex exsectis Cœli pudendis_. Il faut par conséquent corriger l'_Etymologicum Magnum_, au mot [GREEK], et lire pag. 546, lig. 21 [GREEK] au lieu de [GREEK]. _Alma, ab alendo_, parce qu'elle est la mere commune des Dieux et des hommes ; ou bien, à cause de sa beauté ; car Festus explique* _Alma_ par _pulchra_. Cette Epithete se trouve dans l'Invocation de Lucrece, et l'on ne sauroit ouvrir un Poëte sans l'y rencontrer. [GREEK], qui nourrit les enfans, qui leur donne la vie ; dans un distique de Nicomede de Smyrne, que je rapporterai plus bas, à l'occasion des sacrifices qu'on faisoit à Vénus. Il y avoit dans le douzieme quartier de Rome, une rue dite, _Vicus Veneris Almæ_, avec une chapelle de ce nom. _Aurea_, Dorée, dont je parlerai à l'occasion des fêtes d'Erycine. Il ne sera peut-être pas inutile de remarquer qu'Homere donne à Mars l'épithete de [GREEK] _aureas habens habenas_, afin de le parer, dit Eustathe,* de même que Vénus Dorée. Elle est aussi nommée _Purpurissa_ par Servius,* Πορφυρῆ _Purpurea_, dans un fragment d'Anacréon. Elien en apporte une raison dont je dirai un mot, quand j'en serai aux Fêtes de la Déesse. [GREEK]* parce qu'elle fait les mariages. [GREEK]* chez les Syracusains. Mais ce nom tient-il à quelque Dialecte ignoré ? A quelque lieu dont la trace s'est perdue ? Je suspends mon jugement. Mais s'il étoit permis de hasarder une conjecture, je lirois [GREEK] ou [GREEK]. Quoique la Déesse ne soit point nommée de la forte dans aucun Auteur, il pourroit se faire, cependant qu'elle eût été ainsi appellée de Boutès, qu'elle aima, et dont elle eut Eryx. C'est par la même raison qu'elle fut surnommée _Adonias_, d'Adonis qu'elle avoit aimé. [GREEK].* On sait que ce Boutès étoit Roi de Sicile ; ce qui donne du poids à ma conjecture. On pourroit m'objecter que l'ordre des Lettres dans le Lexique d'Hésychius, la détruit. Mais vous, Messieurs, qui avez une connoissance intime de la Langue Grecque, et à qui les anciens Lexicographes sont conséquemment très-familiers, vous répondrez que cet ordre est souvent dérangé dans Hésychius, Suidas, Harpocration, Timée, Apollonius ; en un mot, dans tous les Lexiques dont nous ayons connoissance. Vénus fut appellée [GREEK] par les Grecs,* et _Domina_ par les Latins, à leur imitation. Je pourrois citer mille passages ; mais je me contente de renvoyer à Ovide _Ars Amator_. Lib. 1. ver. 148, et _à Properce_, Lib. 3. Eleg. 3. ver. 31. Ces Epithetes s'appliquoient aussi aux autres Dieux. Elle avoit encore en commun, avec beaucoup d'autres Dieux celle de [GREEK] que lui donne Empédocle dans Athénée,* et de [GREEK]* chez les Taentins. Elle étoït connue chez les Etrusques sous le nom de Thana Lartial, qui signifie, suivant Gori,* _Diva Regina_. On sait que Lartes Porsenna est le Roi Porsenna. Une Statue de marbre de Vénus, de quatre pieds de haut, avec un collier de soie, un double bracelet au bras gauche, et tenant de la main gauche une Colombe, avec cette Inscription, fait conjecturer que Vénus avoit un Temple à cinq milles de Florence, où cette Statue a été trouvée. Voyez le Museum Etruscum.
+
+*) Theocrit. Idyll. 15. vers 105.
+
+*) Pindar. Pythic. Od. 9. vers. 16.
+
+*) Hesiodi Theogonia vers. 16.
+
+*) Coluthi Rapt. Helenæ vers. 97.
+
+*) Hesiodi Theogonia vers. 979.
+
+*) Homeri Hymn. 2. in Venerem init.
+
+*) Homeri Odyss. lib. 18. vers. 192 et passim.
+
+*) Pindari Olympic. Od. 10. vers. 125.
+
+*) Homeri Iliad. lib. 3. vers. 424. et passim.
+
+*) Hesiodi Theogonia, vers. 200.
+
+*) Festus voc. Alma.
+
+*) Eustath. Commentar. in Homeri Odyss. Θ, pag. 1598. lin. 49.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+*) Nonnus Dionysiacorum, lib. 48. vers. 693.
+
+*) Hesychius Voc. [GREEK].
+
+*) Nonnus Dionysiacorum, lib. 33. vers. 25.
+
+*) Euripidis Phœniss. vers. 633.
+
+*) Athen. Deipnosoph. lib. 12. pag. 510. D.
+
+*) Hesychius Vog. [GREEK].
+
+*) Gori Museum Etruscum. Tom. 1. pag. 114.
+
 ...
