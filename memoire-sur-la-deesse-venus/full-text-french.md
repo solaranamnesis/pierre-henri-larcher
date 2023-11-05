@@ -1738,4 +1738,438 @@ Il y avoit dans la même ville,* près d'un Temple dédié à tous les Dieux, un
 
 *) Strabo lib. 8. pag. 582. A.
 
+Le Temple de Vénus à Argos attire ensuite nos regards. Il étoit au-dessus du Théâtre,* et remarquable par la Statue de Télésilla, qui est sur une colonne devant le frontispice. Des chansons et des traits de valeur qu'on peut lire dans Pausanias, ont rendu célèbre cette femme. On voit à ses pieds des Livres, et elle jette les yeux sur un casque qu'elle tient d'une main, et qu'elle se dispose à mettre sur sa tête.
+
+*) Pausanias Corinthiac. sive lib. 2. cap. 20. pag. 156. et 157.
+
+Sur le chemin d'Argos à Mantinée,* il y avoit un Temple double, avec deux entrées, l'une à l'Orient, l'autre à l'Occident. Vénus y avoit une Statue. Pausanias ne dit point si elle étoit de bois ou de pierre ; mais M. l'Abbé Gédoyn a mieux aimé suivre, à son ordinaire, le Traducteur Latin qui décide qu'elle étoit de bois. Héfschius dit très-bien [GREEK]. [GREEK] sont des Statues de bois ou de pierre.
+
+*) Idem ibid. cap. 25. pag. 167.
+
+A Epidaure en Argolide, on voyoit* dans le bois, près du Temple d'Esculape, une Chapelle de Vénus, et dans une autre partie de la même ville, un Temple de cette Déesse.*
+
+*) Idem ibid. cap. 27. pag. 174.
+
+*) Idem ibid. cap. 29. pag. 177.
+
+Si l'on passe d'Epidaure dans l'Isle d'Egine, on y verra un Temple de Vénus* près du port le plus fréquenté. En revenant sur le Continent, on rencontre près d'Argos Téménium avec un Temple de la Déesse, un peu plus loin étoit Lerna, et proche de la mer* une Statue de Vénus en marbre. La tradition du pays portoit que cette Statue avoit été consacrée par les filles de Danaüs.
+
+*) Idem ibid. cap. 29. pag. 179.
+
+*) Idem ibid. cap. 37. pag. 198.
+
+Entrons maintenant en Laconie. La Déesse avoit un Temple à Epidaure,* en ce pays ; un autre sous le nom de Vénus Migonitis,* près du Port de Gythée. Elle avoit été ainsi surnommée, parce que ce Temple étoit vis-à-vis de l'Isle de Cranaë, où Paris jouit, pour la premiere fois de sa conquête. On sait que ce mot vient de [GREEK] _misceo_, dans le sens que Virgile a dit _Mista Deo mulier_. A Cænepolis, près du Promontoire Ténare,* on voyoit sur le bord de la mer un Temple de la Déesse, où elle étoit debout et en marbre. Elle avoit à Amycles une Statue* sur un trépied, et sur un autre trépied, une autre Statue qu'on appelloit Vénus _ad Amyclæum_. Celle-ci étoit l'ouvrage de Polyclete et celle-là de Gitiadas. La Déesse étoit représentée sur le Trône* d'Amyclée. C'étoit sans doute par cette raison qu'on lui donnoit l'Epithete d'Amyclæa.*
+
+*) Idem Laconic. sive lib. 3. cap. 23. p. 271.
+
+*) Idem ibid. cap. 22. pag. 266.
+
+*) Idem ibid. cap. 25. pag. 276.
+
+*) Idem ibid. cap. 23. pag. 255.
+
+*) Idem ibid. cap. 19. pag. 257.
+
+*) Nonnus Dionysiacor. lib. 48. vers. 6.
+
+Dans le Temple même de Minerve Chalciœcos, et près de l'Autel* de la Déesse étoient deux Statues de Pausanias, qui commandoit les Grecs à Platées (et non point les Lacédémoniens, comme le dit l'Abbé Gédoyn) et proche de ces Statues, l'on voyoit* celle de Vénus Ambologera, ou qui éloigne la vieillesse. Elle fut érigée par l'ordre d'un Oracle.* On connoît le vers de cet Hymne, que rapporte* Plutarque : éloignez de nous, belle Vénus, la vieillesse.
+
+*) Pausanias Laconic. sive lib. 3. cap. 18. pag. 252.
+
+*) Idem ibid. pag. 253.
+
+*) L'Abbé Gédoyn traduit par l'avis _de l'Oracle_, comme s'il y avoit un article dans le grec.
+
+*) Plutarch. Symposiac. l. 3. Quæst. 6. p. 654. D.
+
+Près du Temple d'Esculape, il y avoit sur une colline un Temple de Vénus, dont je parlerai quand j'en serai à Vénus Armée ; ou plutôt, ce sont deux Temples l'un sur l'autre.* Celui de dessus s'appelle le Temple de Morpho. Morpho est un surnom de la Déesse, et vient de [GREEK], dont les Latins ont fait, par une légere transposition, le mot _forma_, Beauté. Elle est représentée assise, un voile sur la têre, et des ceps aux pieds. On dit que Tyndare les lui fit mettre, pour donner à entendre que les femmes ne doivent point être volages, inconstantes, et qu'elles doivent rester inviolablement attachées à leurs maris. D'autres disent qu'il voulut se venger, de cette maniere, de Vénus, à qui il imputoit l'opprobre de ses filles ; mais je ne puis absolument le croire, ajoute Pausanias. Brodeau a confondu dans ses notes sur l'Anthologie* cette Vénus avec la Vénus Armée, dont je parlerai plus bas.
+
+*) Pausan. Laconic. sive lib. 3. cap. 15. p. 246.
+
+*) Brodæi Not. ad Antholog. lib. 4. cap. 12. pag. 465.
+
+Le Scholiaste de Lycophron* assure que cette Statue fut faite par ordre d'un certain Législateur de Lacédémone qui vouloit faire entendre que les filles devoient conserver leur chasteté, et ne point obéir à la Déesse : d'autres prétendent, selon le même Scholiaste, que Tyndare la fit faire à cause de la faute d'Hélene.
+
+*) Scholiast. Lycophronis ad vers. 449. par. 54. col. 2. lin. 19.
+
+A Ithome,* Citadelle de Messene, il y avoit un Temple de Vénus, dont on ne trouve rien de particulier.
+
+*) Pausan. Messenic. sive lib. 4. cap. 31. p. 357.
+
+Sur le mont* Cotylius en Arcadie, et au-dessus du Temple d'Apollon, étoit un lieu appellé Cotylon, où étoit un Temple de la Déesse avec sa Statue. Ce Temple n'étoit pas encore couvert du tems de Pausanias. L'Auteur de l'Index de Pausanias a pris delà occasion de donner à cette Vénus le nom de Cotylia, nom qu'elle n'a jamais eu, mais que ne manqueroient pas de lui donner ceux qui travailleroient seulement d'après les Tables des Matieres.
+
+*) Idem Arcadic. sive lib. 8. cap. 41. p. 685.
+
+Il y avoit à Mégalopolis* un Temple de Vénus dans l'enceinte consacrée aux Grandes Déesses. Il s'agit ici de l'enceinte dont Pausanias avoit parlé au commencement du Chapitre ; ainsi [GREEK] est un génitif qui se rapporte à [GREEK]. L'Abbé Gédoyn le fait au contraire rapporter à [GREEK] contre la pensée de l'Auteur, et donne en conséquence à [GREEK] une acception qui lui est étrangere. Mais je me lasse de relever les méprises de cet Abbé. Il y avoit dans ce Temple deux Statues de bois, l'une de Mercure et l'autre de Vénus.
+
+Celle-ci avoit le visage, les mains, et l'extrémité des pieds de marbre. Toute deux étoient l'ouvrage de Damophon. cette Vénus étoit surnommée _Mechanitis_, qui machine, avec raison, ce me semble, dit Pausanias ; car il n'y a point de ruses et d'artifices, ajoute-t-il, qu'on n'ait imaginé pour elle et pour se procurer ses plaisirs.
+
+*) Idem ibid. cap. 31. pag. 665.
+
+La Place de Tégée* étoit un quarré long [GREEK], d'où Vénus qui y avoit un Temple avoit tiré sa dénomination de Vénus _in Plintho_.
+
+*) Idem ibid. cap. 48. pag. 686.
+
+On voyoit à Mantinée* derriere le Théâtre les ruines d'un Temple de Vénus _Summachia_, c'est-à-dire, _alliée_, ou _qui donne du secours_. L'Abbé Gédoyn, aussi heureux dans ses conjectures, qu'habile dans la connoissance du Grec, dit qu'on l'appelloit _Venus de bon secours, apparemment_, met-il en Note,* _parce qu'ils avoient éprouvé son secours à la guerre_, comme si Pausanias n'ajoutoit pas tout de suite la raison de ce surnom, je veux dire, que ies Mantinéens avoient bâti ce Temple pour perpétuer la mémoire du fecours qu'ils avoient donné aux Romains à la bataille d'Actium.
+
+*) Idem ibidem cap. 9. pag. 616.
+
+*) Pausanias François, tom. 2. pag. 151. Edit de Paris.
+
+La Déesse avoit un Temple à Orchomene en Arcadie,* et une Statue de marbre. On seroit tenté de croire que les Graces avoient aussi leurs Statues dans ce Temple, parce que Nonnus les appelle en cent endroits de ses Dionysiaques [GREEK]* les Danseuses d'Orchomene. Or, dans quel autre Temple les Statues des Graces auroient-elles été mieux placées que dans celui de la Déesse dont la compagnie leur plaisoit le plus. Mais Pausanias et mille autres Auteurs assurent qu'elles étoient à Orchomene en Béotie.
+
+*) Pausan. Arcad. sive lib. 8. cap. 13. p. 626.
+
+*) Nonnus Dionysiacor. l. 34. v. 37. et passim.
+
+A quatre stades d'Acacésium en Arcadie, on voyoit un Temple de Cérès, et un peu au-delà un Temple de Pan,* et dans celui-ci deux Statues de Vénus, l'une en marbre blanc, et l'autre en bois.
+
+*) Pausanias Arcadic. sive, lib. 8. cap. 37. pag. 677.
+
+A Theutis* dans le même pays, il y avoit un Temple de la Déesse, sur lequel on ne trouve rien dans les Auteurs, ni sur les anciens monumens.
+
+*) Idem ibid. cap. 28. pag. 659.
+
+A Olympie* dans la lice, il y avoit un Autel de Vénus, au-dedans du lieu nommé l'Eperon.
+
+*) Idem Eliacorum prior, sive lib. 5. cap. 15. pag. 415.
+
+Dans le Temple de Junon,* dans la même ville, étoit une Statue de bronze de Vénus, ouvrage de Cléon de Sicyone, Disciple d'Antiphane, qui avoit eu pour maître Péricléte, éleve de Polyclete. Devant cette Statue étoit assis un enfant nud de bronze doré. C'étoit vraisemblablement Cupidon.
+
+*) Idem ibid. cap. 17. pag. 419.
+
+On conservoit dans ce Temple le coffre où Cypsélus, encore enfant, avoit été caché par sa mere, lorsque les Bacchiades chercherent à le faire périr. Il étoit orné de Sculptures, et entr'autres d'une Médée* assise sur un Trône, ayant Jason à sa droite, et Vénus à sa gauche, avec cette Inscription : _Jason épouse Médée par l'ordre de Vénus_. Sur le même coffre étoit sculpté Mars armé qui enmenoit Vénus. D'un autre côté étoit représenté le jugement* des trois Déesses, et Mercure qui les présentoit à Paris.
+
+*) Idem ibid. cap. 18. pag. 422.
+
+*) Idem ibid. cap. 19. pag. 425.
+
+Tout le pays arrosé par l'Alphée étoit plein de Chapelles de Vénus.* Elle avoit un Temple à Cyllene en Elide* ; à Ægium en Achaïe* près de la mer, et une Statue dans celui de Jupiter Homagyrius en cette derniere ville. Elle avoit aussi un Temple à Bura* en Achaïe, avec sa Statue de marbre Pentélique, par Euclide, Statuaire Athénien. On voyoit sa Statue au portail* du Temple d'Esculape, à Titane en Sicyonie.
+
+*) Strabo, lib. 8. pag. 528. B.
+
+*) Pausan. Eliacorum posterior. sive lib. 6. cap. 26. pag. 19.
+
+*) Idem Achaic. sive lib. 7. cap. 24. p. 584.
+
+*) Idem ibid. cap. 25. pag. 590.
+
+*) Idem Corinthiac. sive, lib. 2. cap. 11. p. 137.
+
+Si nous passons du Péloponese en Béotie, nous verrons à Tanagre* un Temple de Vénus près de celui de Bacchus ; à Thespies* une Statue de Vénus en marbre, ouvrage de Praxitele ; et sur les bords du Céphise un Temple de Vénus Argynnis, bâti par Agamemnon, en l'honneur d'Argynnus, qu'il avoit aimé, et qui s'étoit noyé dans les eaux du Céphise, où il prenoit plaisir à nager. C'est ce que nous apprend en partie Phanoclès* dans son Ouvrage sur les Amours ou les Beaux, et en partie* Athénée, dans le texte duquel il faut lire [GREEK] au lieu de [GREEK], comme le prouve [GREEK]. Permettez-moi, Messieurs, de corriger, à cette occasion, le texte d'Etienne de Byzance, qui est corrompu. Cet Auteur dit au mot [GREEK] : [GREEK] ne fait aucun sens. Lisez [GREEK] _lequel nageant_ dans le Céphise. Athénée s'est servi du mot [GREEK], qui signifie la même chose. Properce* parle aussi de cet Argynnus, et de l'amour qu'eut pour lui Agamemnon.
+
+*) Idem Bœotic. sive lib. 9. cap. 22. p. 152.
+
+*) Idem ibid. cap. 26. pag. 762.
+
+*) Clemens Alexandrin Cohortat. ad Gentes, tom. 1. pag. 32. lin. 20.
+
+*) Athen. Deipnosophist. lib. 13. cap. 8. pag. 603. D.
+
+*) Propertii, lib. 2. Eleg. 7. vers. 21.
+
+_Sunt Agamemnonias testantia littora curas,_  
+_Quæ notat Argyni pœna natantis aqua._
+
+Il y avoit sans doute en ce Pays d'autres Temples et statues de la Déesse ; mais ceux que je viens de rapporter sont les seuls dont les Auteurs fassent mention. Elle avoit un Temple à Oeanthe* chez les Locres Ozoles ; et à Naupacte, aujourd'hui Lépante, il y avoit sur le bord de la mer un Antre,* où on lui rendoit de grands honneurs. Les veuves alloient la prier de leur accorder de secondes noces. Elle fut surnommée Anosia ou _impie_, en Thessalie, d'un Temple que lui éleverent sous ce nom les femmes du Pays, parce qu'elles avoient tué à coups de marche-pieds, par jalousie, la courtisanne Laïs dans le Temple de la Déesse, et un jour de fête. Voyez Suidas, au mot [GREEK].
+
+*) Pausan. Phocic. sive, lib. 10. cap. 28. p. 897.
+
+*) Idem ibid pag. 98.
+
+Plutarque, qui raconte aussi cette histoire, nous apprend que Laïs* quitta Corinthe pour suivre le Thessalien Hippolochus, dont elle étoit éprise, et que le Temple, où elle fut lapidée, se nomma dans la suite, le Temple de Vénus Androphonos, Homicide. La même histoire est rapportée dans Athénée* d'après Strattis et Polémon ; mais ils nomment l'on amant Pausanias, et Pausanias* l'appelle Hippostrate. On montroit son Monument sur les bords du Pénée, avec une Inscription qu on peut lire dans Athénée, à l'endroit cité. Celui* qu'elle avoit à Corinthe dans le Cranium, étoit sans doute un Cénotaphe.
+
+*) Plutarch. in Erotico. pag. 767. F.
+
+*) Athen. Deipnosophist. lib. 13. c. 6. p. 589. A.
+
+*) Pausanias Corinthiac. sive, lib. 2. cap. 2. p. 115.
+
+*) Idem ibidem.
+
+Vénus étoit adorée à Tricca, capitale de l'Estiæotide. Strabon* observe qu'on lui sacrifioit des pourceaux, et que ce n'etoit point le seul lieu, où on lui immoloit de telles victimes.
+
+*) Strabo, lib. 9. pag. 669. A.
+
+La Déesse avoit un Temple* en Acarnanie, dont on ne sait aucune particularité.
+
+*) Dicæarchi Status Græciæ, vers. 55. pag. 4.
+
+Après avoir parcourula Grece, il ne me reste plus à parler que de la Sicile, et de la Grande Grece, qui en étoient des colonies. Je devrois commencer par Vénus Erycine, mais comme cette Déesse fut particuliérement honorée à Rome sous ce nom ; je remets à en parler, lorsque j'en serai à la Capitale du Monde. Je passe donc à Vénus Callipyge, ou aux Belles Fesses, qui avoit un Temple à Syracuses, surnom, dont Athénée nous a conservé la raison.
+
+Un homme* de la campagne, dit-il, avoit deux filles très-belles, qui ne pouvant s'accorder sur la beauté de leurs fesses, se rendirent sur le grand chemin, pour faire décider le point en litige. Vint à passer un jeune homme, dont le pere étoit âgé. Les deux Belles lui montrent leurs charmes. Il décide en faveur de l'aînée, dont il fut tellement épris, qu'il en tomba malade. Il raconte à son jeune frere son aventure. Celui-ci se rend à la campagne, examine aussi les charmes des deux sœurs, et devient amoureux de la cadette, comme son frere l'étoit devenu de l'aînée. Le pere de ces jeunes gens les ayant envain exhortés à se marier* d'une maniere plus honorable, se laisse enfin toucher, va trouver le pere des deux jeunes filles, les emmene de la campagne, et les fait épouser à ses fils. On ne les connoissoit à Syracuses, que sous le nom de _Belles Fesses_, comme le rapporte, dans ses Iambes, Cercidas de Mégalopolis : « Il y avoit à Syracuses un couple surnommé Belles Fesses. » Elles amasserent* de grands biens, dont elles firent bâtir un Temple sous le nom de Vénus aux Belles Fesses.
+
+*) Athen. Deipnosoph. lib. 12. cap. 13. 554. C.
+
+Clément d'Alexandrie* nous apprend aussi que les Syracusains sacrifioient à Vénus aux Belles Fesses, que le Poëte Nicandre, ajoute-t-il, nomme quelque part Calligloutos, ce qui signifie la même chose. Mais si ce Poëte en a parlé, c'est sans doute dans quelque Poëme qui n'est point venu jusqu'à nous, puisque je l'ai cherché inutilement dans les Thériaca et les Alexipharmaca de cet Auteur.
+
+Ce Conte d'Athénée me rappelle une Epigramme de Rufin, dont je ne veux point salir cet écrit. On la trouve dans les _Miscellanea Lipsiensia Nova_, Tom. 9, pag. 107, et beaucoup plus correctement dans la Lettre Critique de M. Toup, au Docteur Warburton, Evêque de Glocester, (_Epistola Critica ad virum celeberrimum, Episcopum Glocestriensem_, pag. 86).
+
+*) Il faut lire [GREEK], au lieu de [GREEK].
+
+*) Elles firent sans doute dans la suite le métier de courtisannes.
+
+*) Clemens Alexandrin. in Protreptico, p. 33. l. 18.
+
+Cette Déesse étoit aussi connue à Syracuses, selon Hésychius, sous le nom d'[GREEK], probablement à cause de sa bienfaisance.
+
+De Sicile en Italie, le trajet est court. Il y avoit à Rhegium,* chez les Brutiens, une très-belle Statue de Vénus en marbre, dont les habitans n'auroient jamais voulu se défaire, quelque prix qu'on leur en eût donné.
+
+*) Cicero in Verrem 4. §. 60.
+
+Elle avoit un Temple, près du Lac Lucrin ; ce qui a fait dire à Symmaque* :
+
+_Ubi corniger Lyæus_  
+_Operit superna Gauri_  
+_..._  
+_... Innatat choreis_  
+_Amathusias renidens_  
+_Salis arbitra et leporis_  
+_Flos siderum Dione._
+
+*) Symmach. lib. 1. Epist. 8. J'ai suivi la correction de Saumaise, qu'on peut voir dans ses Notes sur Florus, lib. 1. cap. 16.
+
+Stace lui avoit donné par cette raison le nom de Lucrina, ou peut-être étoit-elle ainsi surnommée.
+
+_Spectat et Icario nemorosus palmite Gaurus_  
+_..._  
+_Et Lucrina Venus._
+
+*) Statius Sylvar. lib. 3. vers. 147.
+
+La côte de Baies lui étoit consacrée :
+
+_Litus beatæ Veneris aureum Baias_  
+_..._  
+_Laudabo._  
+Martial. lib. 11. Epigram. 81.
+
+Il ne sera peut-être pas inutile d'observer avant de quitter la Grece, qu'en ce Pays, on plaçoit* une Statue de Vénus à l'entrée des maisons, et qu'on la mettoit* au nombre des Dieux Pénates.
+
+*) Enripidis Hippolyt. vers. 101.
+
+*) Ælian. de Naturâ Animal. l. 10. c. 34. p. 583.
+
+Elle étoit connue dans le Latium, près de Minturne, sous le nom de _Marica_, et proche de cette Ville* il y avoit une Chapelle avec cette Inscription : [GREEK], Temple de Vénus. Les partisans de cette opinion croyoient donc que Vénus avoit donné le jour à Latinus. Si Virgile eût été de ce sentiment, il n'auroit point donné à Marica le titre de Nymphe, comme dans ce vers :
+
+_Hunc Fauno et Nymphâ genitum Laurente Maricâ._
+
+*) Servius ad Virgilii Æneid. lib. 7. vers. 47.
+
+Ce Poëte paroît avoir suivi l'opinion d'Hésiode, qui dit dans sa Théogonie,* que Latinus étoit fils de Circé. Il est vrai qu'il ajoute et _d'Ulysse_ ; mais l'on sait que Virgile s'est écarté en plusieurs occasions des régles de la Chronologie. Ce sentiment est encore appuyé du témoignage de Lactance : _Solent_,* dit-il, _mortuis consecratis nomina immutari ; credo, ne quis putet eos homines fuisse. Nam et Romulus post mortem Quirinus dictus est, et Leda Nemesis, et Circe Marica_.
+
+*) Hesiodi Theogonia, vers. 1010.
+
+*) Lactant. de Falsâ Religione, lib. 1. §. 21. p. 118.
+
+Ardea* colonie des Rutules, dans le voisinage de laquelle étoit un Temple de Vénus, où les Latins célébroient en commun une fête. Un peu plus bas étoit Lavinium, avec un Temple de la Déesse commun à tous les Latins, dont l'administration avoir été transmise aux Ardéates par leurs Ancêtres.
+
+*) Strabo. lib. 5. pag. 355. A.
+
+Enfin, nous voici arrivés à la Capitale du Monde ; mais, avant que de parler du culte qu'on y rendoit à cette Déesse, je ne dois pas omettre l'étymologie du mot Vénus chez les Latins, et de quelques-uns de de ses dérivés.
+
+Elle étoit nommée Vénus par les Latins, _quia_, dit Cicéron,* _venit ad omnia_. Il répéte encore la même chose en un autre endroit : _Quæ* autem Dea ad res omnes veniret, Venerem nostri nominaverunt_. L'on trouve aussi dans Arnobe* : _Quod ad cunctos veniat_. Mais S. Augustin paroît d'un autre avis dans la cité de Dieu* : _Venus ob hoc dicitur nuncupata, quod sine ejus vi femina Virgo esse non desinat_. Varron rapporte une autre Etymologie plus philosophique, dont j'ai parlé, page 91.
+
+*) Cicero de Naturâ Deorum, lib. 3. §. 24.
+
+*) Idem ibid. lib. 2. §. 27.
+
+*) Arnobius adversus Gentes, lib. 3. pag. 119.
+
+*) August n. de Civitate Dei, lib. 6. p. 9.
+
+De Vénus, les Latins formoient, au rapport de Ciceron, _Venustas et Venustus.* Ex eâ (Venere) potius Venustas, quam Venus ex Venustate_. Ils faisoient venir aussi du même mot _Veneror_. Tiresias, dit Hygin,* _dracones_ venerantes _dicitur baculo percussisse_. On dit que Tirésias frappa de son bâton deux serpens accouplés. _Antoninus Liberalis_, voulant exprimer la même chose, a rendu _venerantes_ par [GREEK], ce qui détermine absolument le sens. _Venerius_ ou _Venereus_, un esclave dont la personne et les biens étoient consacrés à Vénus Erycine, et dont Ciceron parle _Divinatione, in q. Cæcilium_, §. 17. _pro Cluentio_, §. 15, et ailleurs, viennent encore de la même source. De-là aussi, _Venerea pira_, sorte de poire dans Columelle et Pline* ; de même que nous autres François nous avons une pêche excellente, que nous nommons Têton de Vénus ; _Venerea l'amarante_, dans un ouvrage attribué à Apulée,* un coquillage dans Senéque* et dans Pline le Naturaliste.* C'est le même que les pêcheurs appelloient, selon Hésychius, Oreille de Vénus,* et peut-être celui que nous nommons Conque de Vénus. Les Anciens prétendoient, comme je l'ai remarqué, que cette Déesse avoit été portée à l'isle de Cypre sur une Conque :
+
+_Te ex conchâ natam esse autumant ; cave tu_  
+_harum conchas spernas._  
+Plaut, in Rudente. Act. 3. sc. 3. vers. 42.
+
+car il est bon d'observer que les Anciens donnoient volontiers le nom de Vénus à ce qu'ils trouvoient excellent et agréable. L'Adiante ou Capillaire se nomme en latin _Capillus Veneris_, et une sorte de pois chiche, dont je dirai deux mots, quand j'en serai aux fêtes de Vénus, _Venerium Cicer_.* Je parlerai aussi ailleurs du rafle de six, et du coup victorieux au jeu des osselets, qui tiroient leurs noms de cette Déesse.
+
+*) Cicero de Naturâ Deorum, lib. 2. §. 27.
+
+*) Hygini Fabul. 75. pag. 148.
+
+*) Columell. de Re Rusticâ, lib. 5. 10. 18. pag. 599. lib. 12. 10. 4. pag. 821. Plin. Histor. Natural. lib. 15. tom. 2. pag. 742.
+
+*) Apuleius de Herbis 5.
+
+*) Seneca Epist. 95. pag. 463.
+
+*) Plin. Histor. Natural. lib. 9. cap. 33. tom. 1. pag. 520. lib. 32. cap. 11. tom. 2. p. 595.
+
+*) Hesychius Voc. [GREEK].
+
+Avant que d'entrer dans des détails sur les différentes Vénus connues à Rome, il est à propos de présenter sous un seul et même point de vue, toutes celles qui y étoient adorées, rangées sélon l'ordre des quartiers de cette Ville, tel que nous les trouvons dans _Sextus Rufus_, et dans _Publ. Victor, de Regionibus Romæ_.
+
+*) Plin. Histor. Natur. lib. 18. cap. 12. tom. 2. pag. 116.
+
+Dans le second quartier, un Temple de Vénus et de Cupidon, sur le mont Cælius. C'est aujourd'hui Ste. Croix de Jérusalem. _Georg. Fabricius, Cap. 9._
+
+Dans le troisieme quartier, une Chapelle de Vénus.
+
+Dans le quatrieme, une rue appellée _Vicus Veneris_. Un Temple de _Vénus Cloacina_.
+
+Dans le cinquieme, une rue de _Vénus-Placida, Vicus Veneris Placidæ_, avec une Chapelle de ce nom. Les Temples de Vénus Erycine et Verticordia, dont je parlerai plus amplement, étoient dans ce quartier. On y voyoit aussi une Chapelle de _Venus Cloacina_, différente de celle qui étoit dans le quatrieme quartier.
+
+Dans le sixieme, le Temple de Vénus des jardins, de Salluste, _Templum Veneris Hortorum Sallustianorum_. J'en ai fait un Article. Dans le même quartier, une Chapelle de Vénus.
+
+Dans le septieme, une rue de la Statue de Vénus, _Vicus Statuæ Veneris_. Une statue de la Déesse avoit, sans doute, fait donner ce nom à cette rue.
+
+Dans le huitieme, étoit le Forum, et sur le Forum, un Temple de Jules César, où Auguste consacra le tableau de Vénus Anadyomene, dont j'ai parlé plus amplement, _pag._ 101. Deux Temples de Vénus chauve, l'un ancien, et l'autre récent, _Templum Veneris Calvæ vetus, Templum Veneris Calvæ novum_ ; un Temple de Venus _Genetrix_, appellé aussi de Vénus et d'Anchises, avec un _Atrium_, dont je parlerai en son lieu. Une _Ædes Veneris Cloacinæ_, une _Ædes Veneris Ericinœ_, dont je ferai mention. Le _Forum Cœsaris_, où l'on voyoit deux statues de Vénus ; l'une cuirassée, l'autre l'ouvrage d'Arcésilaüs. Je m'en occuperai à l'article de Venus _Genetrix_.
+
+Dans le neuvième quartier, il y avoit au Panthéon de Jupiter une Statue de Vénus avec la perle de Cléopatre en pendans d'oreilles, sur laquelle je m'étendrai. Un Temple de Vénus Victorieuse, qui me paroît l'ouvrage de Pompée, comme je l'ai remarqué à l'article de Vénus Nicéphore. Un Temple de Junon dans le Portique d'Octavie, avec une Statue de Vénus et de Jupiter, ouvrage de Philiscus de Rhodes, Statuaire estimé, dont l'on voyoit* à Rome un Apollon, une Latone, une Diane, les neuf Muses, et un autre Apollon nud. Dans le Portique d'Octavie, une Statue de Vénus par Phidias, dont j'ai parlé à l'occasion de Vénus Uranie, _pag._ 73 et 74.
+
+*) Idem. lib. 36. cap. 5.
+
+Dans le dixième quartier, une Chapelle de Vénus, fous le nom de Volupia, ou Déeflè de la Volupté, dont j'ai dit un mot, pag. 86. Dans le onzieme, une rue dite _Vicus Veneris_. Un Temple de Vénus. Fabius Gurges, fils du Consul Quintus Fabius, fit condamner à une amende, devant le peuple, des femmes Romaines qui s'étoient laissé corrompre, et de l'argent provenu de cette amende, il fit bâtir, comme nous l'apprenons de Tite-Live,* le Temple de Vénus, qui étoit près du Cirque. Un Temple de Vénus _Murcia_, autrement dite, _Myrtea_, près du grand Cirque. J'en ferai mention à l'article de Venus MuTcia. Une Chapelle de Venu*. Un autel de Vénus Epitalaria, dont je parlerai plus en détail.
+
+*) Tit. Livius, lib. 10. cap. 31.
+
+Dans le douzieme quartier, une rue, dite _Veneris Almæ_, avec une Chapelle de la Déesse, sous le même nom.
+
+Il y avoit, outre cela, un Temple de _Venus Victriæ_, et un autre de _Venus Lubentina_, avec un bois sacré, dont on ignore la situation.
+
+Entrons maintenant dans des détails, au sujet de quelques-unes de ces Vénus. Commençons par Vénus Erycine, que j'ai cru devoir réserver à cet Article.
+
+Vénus étoit surnommée _Erycina_ d'Eryx, qu'elle eut de Boiotus, selon le Scholiaste de Théocrite, sur le vers 101 de la 15e Idylle de Théocrite, [GREEK]. Mais ce texte est altéré, et il faut lire [GREEK]. On sait qu'Eryx étoit fils de Butès.* Mais je croirois plutôt que Vénus fut ainsi nommée* du mont Eryx, où elle avoit un Temple célèbre, et où elle étoit principalement honorée.
+
+*) Diodor. Sicul. lib. 4. §. 83. pag. 326.
+
+*) Idem. lib. 5. §. 77. pag. 393.
+
+Ce Butès étoit un Roi de Sicile.* L'illustration qu'Eryx tiroit de sa mere Vénus, le rendit recommandable aux naturels du pays, et lui acquit l'Empire sur une partie de l'isle. Il bâtit sur le penchant d'une montagne une Ville magnifique, à laquelle il donna son nom, et sur le sommet de cette montagne, qui étoit renfermé dans la Ville, il éleva un Temple à sa mere, qu'il enrichit d'un grand nombre d'offrandes. La piété des habitans, et les honneurs qu'elle recevoit de son fils, lui rendirent cher ce pays, et par cette raison, elle fut elle-même appellée Venus Erycine.
+
+*) Idem. lib. 4. §. 83. pag. 326.
+
+Le mont Eryx* est près de la mer, dans cette partie de la Sicile qui regarde l'Italie entre Drépanes et Panorme. Ce mont est escarpé du côté de Drépanes, et après l'Etna, c'est le plus grand qu'il y ait en Sicile. Le sommet est un terre-plein, que Dédale élargit* par le moyen d'un mur qu'il construisit sur le précipice. On avoit bâti sur le penchant de la montagne une Ville de même nom, que l'on appelle actuellement* Trapani del monte, et sur le terre-plein, où est à présent la citadelle de St. Julien, on avoit élevé le Temple dont je parle, le plus célebre* de toute la Sicile, par la richesse des offrandes, et la magnificence de ses ornemens. Dédale, qui s'étoit réfugié dans cette isle, y avoit consacré un rayon de miel d'or,* si bien travaillé, qu'on le prennoit pour un véritable rayon de miel. Ce Temple étoit* respecté dès les temps les plus anciens, et n'étoit pas moins riche que celui de Paphos. Il ne l'étoit pas cependant encore, lorsque les Athéniens porterent la guerre en Sicile, c'est-à-dire, vers la 91e Olympiade. En effet, les Habitans d'Egeste, voulant engager les Athéniens à se déclarer pour eux, menerent les députés d'Athenes au Temple d'Eryx, et leur en firent voir les richesses. C'étoient, dit Thucydide,* des phioles, des crateres, des encensoirs et autres ustensiles, qui étant d'argent, avoient l'apparence d'être fort riches, quoiqu'ils fussent de peu de valeur.
+
+*) Polyb. lib. 1. §. 55. pag. 79.
+
+*) Diodor. Sicul. lib. 4. §. 78. pag. 322.
+
+*) Jacobi Philippi d'Orville Sicula, cap. 5. p. 51.
+
+*) Polyb. lib. 1. §. 55. pag. 79.
+
+*) Diodor. Sicul. lib. 4. §. 78. pag. 322.
+
+*) Pausanias Arcadic. sive lib. 8., cap. 24. pag. 646.
+
+*) Thucydid. lib. 6. §. 6. pag. 407.
+
+Ces richesses augmenterent avec le temps. « Qui n'admireroit avec raison, dit Diodore de Sicile,* la gloire de ce Temple. Il y en a qui ont acquis de la célébrité, mais des révolutions les ont souvent abaissés. Quant à celui-ci, quoiqu'il tire son origine des siécles les plus reculés, il est le seul, dont les honneurs, bien loin de diminuer, aient toujours été en augmentant. Car après ceux que lui rendit Eryx, Enée étant abordé en Sicile en allant en Italie, décora ce Temple d'un grand nombre d'offrandes, comme étant consacré à sa mere. Les Sicaniens ensuite honorerent la Déesse pendant plusieurs générations, et ornerent continuellement son Temple de magnifiques présens. Les Carthaginois, s'étant après cela rendu maîtres de cette partie de la Sicile, eurent pour la Déesse un respect singulier. Enfin les Romains s'étant emparés de l'Isle entiere, surpasserent tous leurs devanciers par les honneurs qu'ils lui rendirent, et cela avec raison. Car faisant remonter leur origine à cette Déesse, et attribuant à cette cause les heureux succès qui accompagnoient toutes leurs entreprises, ils tâchoient de reconnoître cet accroissement de fortune par des graces et des honneurs. Les Consuls, les Prêteurs, tous les Magistrats, en un mot, qui venoient dans cette Isle, offroient à la Déesse des sacrifices magnifiques, et lui rendoient de grands honneurs ; aussi-tôt qu'ils étoient arrivés au mont Eryx, ils mettoient de côté les marques imposantes de leurs dignités, pour ne s'occuper gaiement que de jeux et de la société des femmes, ne croyant pouvoir se rendre agréables à la Déesse, qu'en se conduisant de la sorte. Le Sénat Romain, qui avoir pour elle une singuliere vénération, permit par un decret, à dix-sept villes des plus fideles de la Sicile, de porter de l'or en l'honneur de Vénus, et de faire garder le Temple par deux cens soldats. »
+
+*) Diodor. Sicul. lib. 4. §. 83. pag. 326.
+
+Nous avons vu dans ce passage de Diodore de Sicile, le respect qu'eurent pour ce Temple les Carthaginois. Cela paroît contredire Elien, qui après avoir parlé de l'or, de l'argent, des colliers et des anneaux précieux, que la crainte de la Déesse empêchoit de piller, ajoute qu'Amilcar* s'en empara, et les convertit en monnoies d'or et d'argent qu'il distribua à ses troupes. Je croirois très-possible de concilier ces deux Auteurs. Amilcar fut pris par les Syracusains, et expira au milieu des supplices les plus cruels, et tous ceux qui eurent part à ce sacrilége, périrent d'une mort violente. Cela parut sans doute une punition des Dieux à ces peuples superstitieux, et ne manqua pas de leur inspirer dans la suite un grand respect pour la Déesse.
+
+*) Ælian. de Natura Animal. lib. 10. cap. 1. p. 601.
+
+Les habitans et les étrangers offroient tous les jours des sacrifices à la Déesse, sur le grand Autel qui étoit exposé à l'air. Les sacrifices duroient tout le jour jusqu'à la nuit, et cependant, ajoute le superstitieux Elien,* on n'appercevoit, au lever de l'aurore, ni charbons, ni cendres, ni restes de tisons sur l'Autel, mais beaucoup de rosée, et de l'herbe nouvelle, qui ne manquoit pas d'y croître toutes les nuits. Les victimes, continue-t-il, se rendoient d'elles-mêmes à l'Autel, suivant l'impulsion de la Divinité, et la volonté de ceux qui les offroient. Voulez-vous sacrifier une brebis, aussi-tôt une brebis se présente à l'Autel avec la cuvette sacrée. Il en est de même d'une chevre ou d'un chevreau. Si vous êtes riche, et que vous vouliez immoler une genisse, ou même plusieurs, le berger ne vous surfera point, et vous ne le vexerez point en marchandant. Car la Déesse à l'œil sur la justice de votre achat, et si vous l'observez, elle vous sera propice. Mais si voulez acheter à meilleur marché qu'il ne convient, envain déposez vous votre argent, la victime s'en retourne, et vous ne pouvez sacrifier.
+
+*) Idem. ibid. pag. 603.
+
+Ce Temple étoit plein de femmes* chées au culte de la Déesse, que les Siciliens et beaucoup d'étrangers lui avoient données pour accomplir leurs vœux. Quoi-qu'esclaves, elles pouvoient se racheter lorsqu'elles étoient en état de payer leur liberté. Témoin Agonis de Lilybée* qui étoit affranchie de Vénus Erycine, et dont les biens exciterent la cupidité de Verrès. La dévotion se rallentit dans la suite, et quoique la montagne fût encore habitée du tems de Strabon, la ville l'étoit beaucoup moins qu'autrefois, le Temple manquoit de Prêtres,* et l'on n'y voyoit plus tant de femmes dévouées aux Autels de la Déesse.
+
+*) Strabo. lib. 6. pag. 418. B.
+
+*) Cicero Divinat. in Quint. Cæcilium. §. 17.
+
+*) Strabo loco superius allato.
+
+Enfin ce Temple* tomba en ruine de vétusté ; mais Tibere, qui se croyoit parent de Vénus, parce qu'il étoit entré dans la famille Julia, le rétablit. Suétone* prétend que ce fut Claude qui le fit rebâtir. Cette contradiction n'est probablement qu'apparente. Tibere aura commencé l'ouvrage, et Claude l'aura achevé. On trouve parmi les Médailles de Sicile, à la fin des _Voyages de Sicile_* de feu M. d'Orville, plusieurs médailles de Ségeste, avec la tête de Vénus Erycine et cette légende : [GREEK] qui me semble indiquer le rétablissement de ce Temple par Tibere. Tel étoit aussi le sentiment de feu M. Haverkamp.* On lit aussi sur quelques autres médailles de la même ville la même légende écrite [GREEK] que je rapporte, à cause de la maniere singuliere d'écrire le Tau ; singularité qui se remarque pareillement sur un très-grand nombre d'autres médailles.
+
+*) Tacit. Annal. lib. 4. §. 43.
+
+*) Suetonius in Claudio. §. 25.
+
+*) Jacob. Philippi d'Orville Sicula, pag. 390, _etc._ Tab. 11.
+
+*) In Commentar. ad Parut. pag. 671 et 672.
+
+C. Considius Nonianus, Questeur de Sicile, paroît avoir été chargé par Tibere du soin de rebâtir ce Temple. On voit sur une médaille de Fulv. Ursinus la tête de Vénus Erycine couronnée de myrte, avec cette légende : _C. Considi Noniani S. C._, et de l'autre côté cette Inscription, EPUC. autour d'un Temple avec une porte, environné d'un mur, et posé sur le haut d'une colline ; ce qui avoit fait regarder ce Temple par Vaillant* comme celui de Venus Capitolina. Mais Rickius, dans ses Notes sur les Annales de Tacite (lib. 4. §. 43.) Spanheim, _de usu et præstantiâ Numismatum_ et Haverkamp _ad Parut. Sicil. Numism. Tab. 107. n°. 2. pag. 642. et 644._ et plus amplement _ad Morell. Thesaur. Numismat. tom. 1. pag. 109._ sont de mon avis.
+
+*) Tom. 1. Numismat. Cons. Tab. 45. n°. 5.
+
+Il paroît par une Epigramme ancienne donnée par Muratori (tom. 2. pag. 762) avec une négligence dont il y a peu d'exemples, que les habitans de la ville d'Eryx placerent dans le Temple de la Déesse la Statue de Tibere avec celle de Claude. Comme l'Epigramme dont je parle est mutilée, on ne peut rien assurer. On trouvera sans doute là-dessus des éclaircissemens dans l'ouvrage que prépare le Prince Lancillotti Castello, sur les Antiquités et les Inscriptions de Sicile.
+
+Il y avoit anciennement à Psophis,* en Arcadie, un Temple de Vénus Erycine, qui étoit tombé en ruine du tems de Pausanias. L'opinion la plus commune étoit que Psophis étoit fille d'Eryx, Roi de Sicanie ; que son pere ayant remarqué qu'elle étoit enceinte, l'envoya à Phégée chez son ami Lycortas, où elle accoucha de deux enfans, qui donnerent dans la suite à cette ville le nom de leur mere.
+
+*) Pausanias Arcadic. sive lib. 8. cap. 24.
+
+Le Dictateur Quint.* Fabius Maximus fit vœu, l'an 535 de Rome, de bâtir un Temple en l'honneur de Vénus Erycine, après la bataille de Trasimene, ainsi que l'avoient prescrit les Livres des Sibylles. Sur la fin de l'année suivante,* il demanda au Sénat la permission de dédier le Temple de Vénus Erycine, qu'il avoit fait vœu de bâtir en l'honneur de cette Déesse pendant sa Dictature. Le Sénat ordonna que lorsque Tibere Sempronius, Consul désigné, seroit entré en charge, il feroit son rapport au Peuple, à l'effet de créer Quint. Fabius Maximus Duumvir, pour faire la dédicace de ce Temple. Il étoit dans le Capitole,* c'est-à-dire, dans le huitieme quartier, et séparé seulement par un canal de celui de Mens, qui fut consacré dans le même tems.
+
+*) Tit. Livius, lib. 22. cap 9 et 10.
+
+*) Idem, lib. 23. cap. 30.
+
+*) Idem ibid. cap. 31.
+
+On prit de-là occasion de donner à cette Vénus le surnom de _Capitolina_, dont parle Suétone* en deux endroits. Dom de Montfaucon ne l'a point oubliée dans son Antiquité Expliquée* ; mais content d'une dénomination séche, et sans faire voir le rapport qu'elle a avec Vénus Erycine, rapport qu'il paroît avoir ignoré, il cite Lampridius qui n'en dit rien du tout.
+
+*) Sueton. in Caligulâ, §. 7. in Galbâ. §. 18.
+
+*) Antiquité Expliquée, tom. 1. pag. 171.
+
+Ce Temple étoit à l'entrée du Capitole, et c'est sans doute cette circonstance qui fit naître à Ovide l'idée de dire par une prolepse familiere aux Poëtes, en parlant des Sabins qui ouvroient les portes du Capitole, que Vénus fut le seul Dieu qui s'en apperçut :
+
+_Sola Venus portæ cecidisse repagula sensit._
+
+*) Ovid. Metamorphos. lib. 14. vers. 783.
+
+J'ai dit, _par une prolepse_, parce que ce Temple n'existoit point alors. Burmann me paroît avoir eu tort de supposer dans ses Notes sur ce vers, qu'il étoit question du Temple de Vénus _Cluacina_. Il y en avoit un, il est vrai, dans ce quartier ; mais il étoit trop éloigné ; d'ailleurs, ce Savant s'apuie d'un passage de Pline qui est altéré.
+
+Je n'oserois assurer que ce Temple soit le premier qu'on ait élévé à Vénus dans Rome ; niais il n'est fait mention d'aucun autre avant cette époque. Cette Déesse ne fut peut-être elle-même connue des Romains qu'après qu'ils eurent voyagé dans la Grande Grece. Du moins Varron remarque-t-il,* comme je l'observerai encore, qu'elle avoit été inconnue sous les Rois de Rome, et Cincius étoit de même avis.
+
+*) Macrob. Saturnal. lib. 1. cap. 12. pag. 170.
+
+On pourroit conclure d'un passage de Pline, que je citerai en parlant de Vénus Myrtea, que Vénus étoit connue à Rome, dès le tems du Rapt des Sabines ; mais le témoignage de Varron, le plus Savant des Romains, me paroît d'un plus grand poids que celui de Pline, trop occupé pour avoir eu le loisir de discuter ce fait, et j'ai montré de quelle maniere il falloit entendre le vers d'Ovide que je viens de citer.
+
+Il y avoit à Rome, en 550, un autre Temple de Vénus* Erycine au-delà de la Porte Colline, c'est-à-dire, dans le cinquieme quartier :
+
+_Est prope Collinam templum venerabile Portam ;_  
+_Imposuit templo nomina celsus Eryx._*
+
+*) Tit. Livius, lib. 30. cap. 38.
+
+*) Ovid. Remed. Amoris, vers. 519.
+
+On y prépara les jeux d'Apollon en cette année, à cause de l'inondation du Tibre, qui avoit empêché de les célébrer selon l'usage, dans le Cirque. Cependant on est bien surpris de voir vingt et un ans après un Temple de Vénus Erycine dédié dans le même endroit par Luc. Porcius, Duumvir,* environ un an après qu'il eut fait vœu de le construire. Tite-Live se seroit-il trompé dans le premier passage, dit M. Drackenborch ? ou plutôt, ajoute-t-il, cet Historien n'auroit-il point désigné, par une prolepse, le lieu où depuis fut bâti ce Temple ?
+
+*) Tit. Livius, lib. 11. cap. 34.
+
+Je réponds que Tite-Live étoit trop instruit pour se tromper sur un fait de cette nature. A l'égard de la prolepse, Ovide, comme Poëte, pouvoit l'employer.
+
+_Pictoribus atque Poetis_  
+_Quid libet audendi semper fuit æqua Potestas ;_
+
+Mais la sévérité de l'Histoire ne permet pas une pareille licence. Si jamais on l'admettoit, elle y répandroit une incertitude que rien ne pourroit dissiper. Si ce Temple n'eut point existé en 550, cet Historien se seroit contenté de dire qu'on célébra les jeux d'Apollon au-delà de la Porte Colline, auprès du lieu où l'on avoit depuis élevé un Temple à Vénus Erycine.
+
+Ce qui n'étoit d'abord qu'une simple conjecture, acquiert de la consistance par un passage d'Ovide que les Commentateurs de ce Poëte, ainsi que ceux de Tite-Live, chose bien étrange, ont cru en contradiction avec cet Historien.
+
+_Templa frequentari Collinæ proxima Portæ_  
+_Nunc decet : à Siculo nomina colle tenent._  
+_Utque Syracusas Arethusidas abstulit armis_  
+_Claudius, et bello te quoque cepit, Eryx ;_  
+_Carmine vivacis Venus est translata Sibyllæ ;_  
+_Inque suæ stirpis maluit urbe coli._*
+
+*) Ovid. Fastor, lib. 4. vers. 871, _etc._
+
+Ce passage prouve manifestement que le Temple élevé en cette occasion n'est point celui que dédia le Duumvir Quint. Fabius Maximus. 1°. Parce que celui-ci fut dédié avant que la Sicile eût été subjuguée, et que l'autre ne fut bâti qu'après la conquête de cette isle. 2°. Parce que celui dont parle Ovide étoit près de la Porte Colline, et que l'autre étoit dans le Capitole.
+
+Ces vers prouvent aussi que le Temple d'Eryx, construit par Claudius Marcellus le fut tout de suite après la prise de Syracuses.
+
+_Utque Syracusas Arethusidas abstulit armis_  
+_Claudius, et bello te quoque cepit, Eryx ;_  
+_Carmine vivacis Venus est translata Sibyllæ ;_  
+_Inque suæ stirpis maluit urbe coli._*
+
+*) Idem ibid. vers. 873, _etc._
+
+Or cette conquête est de l'an 540 de Rome. On n'est donc plus surpris de ce qu'il est fait mention de ce Temple dix ans après, à l'occasion des jeux d'Apollon que l'on y célébra. Mais si l'existence de ce Temple, en 550, est bien constatée, comme je le pense, pourquoi Lucius Porcius dédie-t-il au même lieu un temple à Vénus Erycine vingt et un ans après, c'est-à-dire, trente et un ans après que Claudius Marcellus l'eut fait élever. On peut répondre que celui de Marcellus n'avoit point été construit d'une maniere solide, et qu'étant tombé en ruine, on avoit été obligé de le rebâtir. On pourroit dire aussi qu'il avoit été détruit par un incendie, ou par quelque autre accident.
+
+Cette conjecture me semble naturelle. Si elle n'est point vraie, du moins a-t-elle le mérite de faire accorder Tite-Live avec Ovide, qui avoient paru jusqu'ici se contredire mutuellement, et de concilier deux passages de cet Historien que les plus habiles Commentateurs avoient cru inconciliables.
+
 ...
