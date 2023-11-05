@@ -1802,7 +1802,7 @@ Sur le mont* Cotylius en Arcadie, et au-dessus du Temple d'Apollon, étoit un li
 
 Il y avoit à Mégalopolis* un Temple de Vénus dans l'enceinte consacrée aux Grandes Déesses. Il s'agit ici de l'enceinte dont Pausanias avoit parlé au commencement du Chapitre ; ainsi [GREEK] est un génitif qui se rapporte à [GREEK]. L'Abbé Gédoyn le fait au contraire rapporter à [GREEK] contre la pensée de l'Auteur, et donne en conséquence à [GREEK] une acception qui lui est étrangere. Mais je me lasse de relever les méprises de cet Abbé. Il y avoit dans ce Temple deux Statues de bois, l'une de Mercure et l'autre de Vénus.
 
-Celle-ci avoit le visage, les mains, et l'extrémité des pieds de marbre. Toute deux étoient l'ouvrage de Damophon. cette Vénus étoit surnommée _Mechanitis_, qui machine, avec raison, ce me semble, dit Pausanias ; car il n'y a point de ruses et d'artifices, ajoute-t-il, qu'on n'ait imaginé pour elle et pour se procurer ses plaisirs.
+Celle-ci avoit le visage, les mains, et l'extrémité des pieds de marbre. Toute deux étoient l'ouvrage de Damophon, cette Vénus étoit surnommée _Mechanitis_, qui machine, avec raison, ce me semble, dit Pausanias ; car il n'y a point de ruses et d'artifices, ajoute-t-il, qu'on n'ait imaginé pour elle et pour se procurer ses plaisirs.
 
 *) Idem ibid. cap. 31. pag. 665.
 
