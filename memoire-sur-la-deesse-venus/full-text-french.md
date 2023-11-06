@@ -2172,4 +2172,354 @@ Or cette conquête est de l'an 540 de Rome. On n'est donc plus surpris de ce qu'
 
 Cette conjecture me semble naturelle. Si elle n'est point vraie, du moins a-t-elle le mérite de faire accorder Tite-Live avec Ovide, qui avoient paru jusqu'ici se contredire mutuellement, et de concilier deux passages de cet Historien que les plus habiles Commentateurs avoient cru inconciliables.
 
+Remarquons aussi que ce Temple, ainsi que celui de Vénus Verticordia, fut placé hors de la ville, selon les principes des Aruspices Etrusques. Les Temples de Vénus,* est-il dit dans leurs Livres, doivent être placés proche des portes et hors de la ville, afin d'ôter par l'éloignement, plusieurs occasions de débauche aux jeunes gens et aux meres de famille.
+
+*) Vitruv. lib. 1. cap. 7.
+
+Il y avoit à Rome un autel de Vénus _Epitalaria_,* c'est-à-dire, qui se plaît au travail, [GREEK] étant la corbeille où les femmes mettoient leurs laines et leurs fuseaux. Il étoit près du Temple de la Fortune Virile, et par conséquent dans le onzieme quartier. Cette Vénus tenoit aux mœurs anciennes, et faisoit allusion aux occupations des Dames Romaines. Cet autel, qui honoroit le siécle où on l'avoit dressé, étoit la condamnation des siécles suivans, où les femmes, amies de l'oisiveté, sembloient avoir renoncé à toute pudeur. Cette Vénus patoît avoir donné à Nonnus l'idée de représenter la Déesse filant et faisant de la toile.
+
+*) Plutarch. de Fortunâ. Romanor. pag. 323. A.
+
+Vénus, dit-il, dont les Jeux,* les Ris, les Amours avoient été l'unique occupation, prit du goût pour les amusemens de Minerve, et se mit à manier le fuseau et à faire de la toile. Pitho, la Déesse de la Persuasion, préparoit les laines, Pasithée tournoit le fuseau, et Aglaïa distribuoit les fils à la Déesse. La Flûte oisive ne mêloit plus ses accens aux tendres chants de l'Hymenée ; Harmonie gémissoit de n'avoir plus de tendres amans à unir ; le Flambeau de l'Amour étoit éteint, ses Traits émoussés ; ce Dieu avoit ôté la corde de son arc, et le monde vieillissoit tristement sans se reproduire. Minerve, jalouse des succès de Vénus, en porta lès plaintes à Jupiter. Les toiles et les fuseaux, lui dit-elle, m'ont été assignés par les Destins, tels sont mes droits, tels sont mes priviléges, Junon les respecte quoique votre sœur et votre femme, et Vénus s'en empare. Mais qu'a-t-elle donc fait pour les Dieux ? A-t-elle jamais combattu pour eux ? Quels sont les Titans qu'elle a vaincus avec son Ceste ?
+
+*) Nonnus Dionysiacor. Lib. 24. vers. 243, _etc._
+
+Ce discours* excita la curiosité des Dieux. Mercure, né railleur, badina Vénus sur ce nouveau goût. Vous vous emparez, lui dit-il, des toiles de Pallas, laissez-lui donc aussi votre Ceste,* et armez votre bras de sa pique pesante et de sa redoutable Egide. Vous préparez sans doute cette étoffe pour Mars ; n'y représentez cependant ni boucliers ni combats, Vénus n'a rien de commun avec la guerre. Tracez-y plutôt le soleil, témoin de vos amours furtifs, et que vos chastes mains y brodent ces liens antiques dont Vulcain sut vous enchaîner avec votre amant. Les Dieux rirent de cette plaisanterie ; elle fit effet. Vénus n'acheva point son ouvrage, reprit la route de Cypre, et ne songea plus, avec son fils, qu'à unir les cœurs.
+
+*) Ce discours est très-long dans Nonnus ; je l'ai beaucoup abrégé.
+
+*) Il y a dans Nonnus, vers. 299 [GREEK]. Mais il faut lire [GREEK] au datif, autrement il n'y a pas de sens. Le Traducteur Latin s'y est trompé.
+
+Cette fable fait-elle allusion à la Vénus Epitalaria dont je viens de parler, ou plutôt ne veut-elle pas dire que dans l'enfance du monde, on ne s'occupoit que des arts utiles ; que lorsque la terre fut plus peuplée, on inventa peu-à-peu les arts d'agrément, et qu'il y eut alors beaucoup de gens oisifs, qui ne penserent qu'aux plaisirs, et se laisserent sur-tout aller au plus dangereux penchant de la nature.
+
+Vénus _Verticordia_ répondoit à-peu-près, chez les Romains, à la Vénus _Apostrophia_ des Grecs. Trois Vestales* s'étant laissé corrompre par des Chevaliers Romains, furent punies, suivant l'usage. Le Sénat* ayant consulté à ce sujet les Livres des Sibylles, fit élever à, Vénus un Temple et une Statue sous le nom de Verticordia, afin d'engager cette Déesse à détourner les femmes et les jeunes filles des passions déréglées, et à les porter à la pureté.
+
+*) Julius Obsequens de Prodigiis 98. p. 108.
+
+*) Valer. Maxim. lib. 8. cap. 15. §. 12. p. 784.
+
+C'est ce qu'Ovide a exprimé dans ses Fastes* :
+
+_Roma pudicitiâ proavorum tempore lapsa est :_  
+_Cumæam, Veteres, consuluistis Anum._  
+_Templa jubet Veneri fieri : quibus ordine factis,_  
+_Inde Venus verso nomina corde tenet._
+
+*) Ovid. Fastor. lib. 4. vers. 157, _etc._
+
+On enterroit les Vestales en vie, rue Salaria, au-delà de la Porte Colline. C'est sans doute ce qui a engagé Onuphrius a conjecturer que ce Temple étoit en cette rue. Cette conjecture me paroît vraisemblable. Cependant il y avoit dans l'intérieur du Cirque un Temple ou Chapelle de Vénus Verticordia* ; mais il peut se faire qu'il y eut à Rome deux Vénus de ce nom, comme il y avoit deux Vénus Erycines. Quoi qu'il en soit, ce Temple fut élevé l'an 639 de Rome, si l'on en croit les Commentateurs de Valere Maxime. Il étoit dans le cinquieme quartier. Sulpitia,* fille de Paterculus, et femme de Fulvius Flaccus,* fut élue sur cent femmes choisies pour faire la dédicace de la Statue de la Déesse, suivant que le prescrivoient les Livres des Sibylles.
+
+*) J'en parlerai à l'Article de Vénus _Murcia_ ou _Myrtea_.
+
+*) Plin. Histor. Natur. lib. 7. cap. 35. tom. 1. pag. 394. Valer. Maxim. loco superius laudato.
+
+Il paroît que c'est la même histoire que rapporte* Plutarque dans ses Questions Romaines ; mais, sans parler du Temple qu'on éleva à Vénus en cette occasion, il dit qu'on enterra vifs deux Grecs et deux Gaulois en l'honneur des Dieux Etrangers, afin de détourner de dessus la République les malheurs dont la menaçoient les Livres des Sibylles.
+
+*) Plutarch. Quæst. Rom. pag. 284. B.
+
+Passons maintenant à Vénus _Murcia_. Il y avoit, dit M. Gori,* dans le territoire de Veies, une ville appellée _Aræ Mutiæ_, ou _Aræ Murtiæ_ de _Murcia_, surnom de Vénus qui y étoit adorée. M. Gori auroit dû nous faire part de ses autorités ; ce n'est pas la seule chose hazardée qui se trouve dans son ouvrage.
+
+*) Gori Museum Etruscum, tom. 1. pag. 116.
+
+Quoi qu'il en soit, Vénus étoit adorée à Rome sous le nom de Vénus Murcia ; c'étoit la même que Vénus Myrtea, dont le nom avoit souffert quelque altération dans le langage ordinaire. Plutarque dit, en parlant des sacrifices que les femmes faisoient à la Bonne Déesse : « Elles ont le myrte en horreur, parce qu'il est consacré à Vénus ; car les Romains appellent actuellement Vénus Murcia, celle à laquelle ils donnoient autrefois le nom de Venus Myrtea.* » Le témoignage de Plutarque est confirmé par celui de Pline le Naturaliste : « Il y avoit, dit-il, un ancien Autel de Vénus Myrtea, qu'on appelle maintenant Vénus Murcia : _Ara vetus Veneris Myrteæ quam nunc Murciam vocant_.* »
+
+*) Plutarch. Quæst. Roman. pag. 268. E.
+
+*) Plin. Histor. Natural. lib. 15. cap. 29. tom. 1. pag. 753.
+
+Son Temple ou Chapelle étoit dans le Cirque intérieur, appellé le Cirque près du Mont Murcius : _Intimus Circus ad Murtium vocatus... dicunt esse à Murteto declinatum, quod ibi id fuerit, cujus vestigium manet, quod ibi sacellum etiam nunc Murtiæ Veneris_.* Ce mont étoit le même que le Mont Aventin : _Murciæ Deæ sacellum erat sub monte Aventino, qui antea Murcus vocabatur. Festus Voc. Murciæ._ Tite-Live place aussi la Chapelle de Vénus Murcia près de la même montagne : _Ancus... ingenti prædâpotitus, Romam redit, tum quoque multis millibus Latinorum in civitatem acceptis ; quibus, ut jungeretur Palatio Aventinum ad Murciæ datæ sedes_.*
+
+*) Varro de Linguâ Latinâ, lib. 4. pag. 37.
+
+*) Tit. Liv. Histor. lib. 1. cap. 33. §. 5.
+
+Les Bornes autour desquelles on tournoit dans le Cirque a voient pris de cette Déesse le nom de _Metæ Murciæ : si quis â fugâ retrahere, vel occultam demonstrare poterit Regis filiam, Veneris ancillam, nomine Psychen, conveniat retro Metas Murcias Mercurium prædicatorem_.* Tertullien dit la même chose qu'Apulée : _Consus, ut diximus, apud Metas sub terrâ delitescit Murcias. Has quoque idolum fecit. Murtiam enim Deam Amoris volant, cui in illâ parte Ædem vovêre_.*
+
+*) Apul. Metamorphos. lib. 6. pag. 180.
+
+*) Tertullianus de Spectaculis. Je cite ce passage tel qu'il a été corrigé par Joseph Scaliger.
+
+Cette Vénus se nommoit aussi Verticordia : _Vallis ipsa ubi Circenses editi sunt, ideo Murcia dicta est, quia quidam vicinum montem Murcum appellatum volunt ; alii quod Fanum Veneris Verticordiæ ibi fuerit, circa quod nemus e Myrtetis fuisset, inde mutatâ litterâ Murciam appellatam_.* Le texte est certainement corrompu : je lis _inde Myrteam et postea mutatâ litterâ Murciam appellatam_.
+
+*) Servius ad Virgilii Æneid. lib. 8. vers. 636.
+
+Je ne puis m'imaginer que cette Vénus soit la même que celle dont j'ai parlé à l'Article Verticordia, page 204, _etc._ Je croirois plutôt qu'il y avoit à Rome deux Chapelles de ce nom, de même qu'on y voyoit deux Temples de Vénus Erycine.
+
+Quelques Peres de l'Eglise, et S. Augustin entr'autres, prétendent que Murcia étoit la Déesse de la Paresse : _Dea Desidiæ existimata est, quæ faceret hominem_ Murcidum, _id est, nimis desidiosum_. Ils faisoient venir, comme on le voit, ce mot de _Murcidus_. Cette étymologie s'accrédita vers le temps de Constantin, et Servius, qui vivoit sous ce Prince, après avoir rapporté sur le vers 636 du huitieme Livre de l'Enéide, l'opinion la plus généralement reçue, qui étoit celle des Anciens, et ce qui est à remarquer, celle de Varron, le plus sçavant des Romains, ajoute : _alii Murciam à_ Murco, _quod est_ Murcidum _dictam volunt_. Le peu d'autorité de cette étymologie me paroît une bonne raison pour lui donner l'exclusion.
+
+*) Stus Augustin. de Civitate Dei, lib. 4. cap. 16.
+
+Il y avoit aussi une Vénus Myrica* qui ne m'est connue que par un passage de Servius ; mais je le crois altéré, et je pense qu'il faut lire _Murcia et Myrtea_ au lieu de _Myrica et Myrtea_. Le changement que je fais au texte de Servius me paroît d'autant plus sûr, qu'il est fondé sur des passages de Pline et de Plutarque, ci-dessus cités, et qu'il est léger et ne consiste qu'à écrire l'_i_ après le _c_, au lieu de le mettre devant. Je ne dois pas cependant dissimuler qu'il y avoit dans l'isle de Cypre* un lieu nommé Myricæ, où Vénus étoit en grande vénération.
+
+*) Servius ad Virgilii Æneid. lib. vers. 720.
+
+*) Hesychius Voc. [GREEK].
+
+Le Myrte étoit consacré à la Déesse, parce qu'au sortir de la mer, elle se retira parmi des Myrtes,* afin de cacher sa nudité. Ovide* fait aussi la même remarque, mais avec quelque légere différence. Elle* se couronna de myrtes après la victoire qu'elle remporta sur Junon et Pallas, au jugement de Paris, qui lui adjugea le Prix de la Beauté. Les deux autres Déesses prirent, par cette raison, le myrte en horreur. Mais comme les Légendes des Anciens n'ont pas beaucoup de consistance, d'autres Auteurs* prétendent que cette plante étoit très-agréable à Minerve. Myrsine, disent-ils, étoit une jeune Athénienne, qui surpassoit en beauté toutes les jeunes filles d'Athenes et en force tous les garçons. Elle étoit agréable à Minerve, se rendoit à la Palestre, au Stade, et couronnoit les victorieux. Quelques jeunes gens indignés contre Myrsine, parce qu'ils avoient été vaincus, la tuerent par jalousie. Sa mort n'éteignit point l'amitié qu'avoit pour elle Minerve. Le Myrte lui fut toujours cher, ainsi que l'Olivier. On sait que [GREEK] signifie un Myrte.
+
+*) Servius ad Virgilii Æneid. lib. 5. vers. 72.
+
+*) Ovid. Fastorum, lib. 4. vers. 141, _etc._
+
+*) Nicandri Alexipharm. vers. 618, _etc._
+
+*) Geoponic. lib. 11. cap. 6. pag. 305 et 306.
+
+Lorsque les Romains et les Sabins* eurent mis bas les armes, ils se purifierent avec du myrte, parce que Vénus préside à l'union conjugale, et que cet arbuste lui est dédié. On sait que les Sabins avoient pris les armes pour venger le Rapt de leurs filles et de leurs femmes. Cependant Varron assure,* suivant Macrobe,* que Vénus ne fut point connue à Rome sous les Rois. Quoi qu'il en soit, cette purification me rappelle les Temples et Statues de Vénus _Cloacina_, qu'on voyoit à Rome du temps de Pline ; car les Anciens, selon la remarque de cet Auteur, disoient* _cluere_ pour purger, nétoyer, purifier : _cluere enim Antiqui purgare dicebant_. On lisoit autrefois _pugnare_ en ce passage, et je crois cette faute très-ancienne, et qu'elle existoit déja du temps de Servius, puisqu'elle paroît avoir donné occasion à ce Grammairien de dire que Vénus étoit armée,* parce que _cloare_, dit-il, signifie combattre. Cette faute a induit en erreur M. Gori, _page_ 117 du _Museum Etruscum_. D'un autre côté, Lactance interprete ce surnom différemment. « Tatius, dit ce Pere,* consacra la Statue de Cloacina, qui fut trouvée dans le grand Cloaque, et comme il ignoroit qui elle représentoit, il lui donna le nom du lieu d'où on l'avoit tirée. » L'explication de Pline, sçavant dans les Antiquités de sa Patrie, me paroît préférable à celle d'un Pere de l'Eglise qui les connoissoit médiocrement. On n'ignore point, que content de répandre du ridicule sur les Divinités des Payens, ce Pere s'attachoit, ainsi que beaucoup d'autres, à des étymologies souvent trompeuses, ou à des approximations de noms. On en a vu un exemple dans S. Augustin, qui vouloit que Murcia fût la Déesse de la Paresse, et l'on sait que d'autres Peres ont cru que les Romains avoient élevé une Statue à Simon le Magicien, parce qu'on avoit trouvé dans le Tibre la base d'une Statue : avec cette Inscription : _Semoni Sanco_.
+
+*) Plin. Histor. Natur. lib. 15. cap. 29. tom. 1. pag. 753.
+
+*) Voyez ci-dessus, pag. 197.
+
+*) Macrob. Saturnal, lib. 1. cap. 12. pag. 170.
+
+*) Plin. Histor. Natural. lib. 15. cap. 29. tom. 1. pag. 753.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+*) Lactant. de Falsâ Religione, lib. 1. cap. 20. pag. 104. lin. ult. et pag. 105.
+
+Le Temple de Cluacina* étoit sur la place de Rome, près des _Tabernæ Novæ_, dans le huitieme quartier. Il y avoit un autre Temple de Vénus Cluacina* dans le quatrieme quartier, et une Chapelle de même nom dans le cinquieme. C'est, je pense, de cette Chapelle, que parle Plaute dans son Curculio, Act. 4, Scen. 1, vers 10.
+
+*) Tit. Livius, lib. 3. cap. 48.
+
+*) Onuphrii Panvinii Descriptio urbis Romæ.
+
+Lorsque les Romains remportoient une victoire sans peine, [GREEK], _impulverea victoria_, comme s'exprime Aulugelle, ou sans répandre de sang, on décernoit au Général l'Ovation. Il s'avançoit* à cheval couronné du myrte de Vénus Victorieuse. Postumus Tubertus est le premier qui en ait reçu les honneurs ; mais dans la suite M. Crassus refusa de porter le myrte* en pareil cas, et le Sénat, pour lui complaire, ordonna qu'il seroit couronné de laurier.
+
+*) Plin. Histor. Natural. lib. 15. cap. 29. p. 754.
+
+*) Aul. Gell. lib. 5. cap. 6.
+
+Ce que je viens de dire de Vénus Victorieuse, me rappelle que je n'en ai point encore parlé. Elle est cependant trop intéressante pour être oubliée. Elle fut surnommée Nicéphore, ou Victorieuse par plusieurs raisons. Aux jeux qu'Apollon* célébra après avoir tué le serpent Python, Vénus vainquit Mercure à la Lutte, et eut pour prix la Cithare, dont elle fit dans la suite présent au beau Paris. Elle remporta encore la victoire sur Junon et Minerve, quand ces Déesses lui disputerent le Prix de la Beauté. On la trouve souvent sur les Médailles avec une Pomme, symbole de sa victoire.
+
+*) Ptolem. Hephæst. Vide Photium in Bibliothec Cod. 190. pag. 489. lin. 55, _etc._
+
+Il y avoit à Argos* une Statue de Vénus Nicéphore. Hypermnestre la consacra à cette Déesse dans le Temple d'Apollon Lycius, en mémoire de ce qu'elle avoit été absoute par les Argiens. Son pere Danaüs l'avoit citée en justice, parce qu'elle avoit, malgré ses ordres, conservé la vie à son mari Lyncée. Vénus est surnommée [GREEK] _Tropæa Gestans_, dans une Epigramme de l'Anthologie. Je passe sous silence les Trophées dont parle Agathias,* Auteur de cette Epigramme. Il me suffit de dire qu'une honnête femme rougiroit des Trophées dont cette Déesse s'applaudit en cette occasion.
+
+*) Pausanias Corinthiac. sive lib. 2. cap. 19. pag. 153.
+
+*) Miscellanea Lipsiensia Nova, tom. 9. p. 694.
+
+On me reprochera peut être d'avoir placé une Vénus Grecque dans un lieu où je ne parle que des Romaines. Je prie de faire attention, qu'en suivant scrupuleusement l'ordre géographique, il m'auroit fallu couper quelques articles en plusieurs parties, qui ne formant plus un tout, auroient cessé d'être interessants. J'ai cru qu'on verroit avec plus de plaisir sous un seul et même point de vue toutes les Vénus Uranies, toutes les Erycines, toutes les Nicéphores, _etc._ Je me suis déterminé à parler de ces deux dernieres et de plusieurs autres, lorsque j'en serois aux Vénus Romaines, parce qu'elles étoient encore plus connues à Rome, que dans les Pays où elles avoient commencé à l'être. Mais après ce petit préambule que j'ai jugé nécessaire pour prévenir les critiques je reviens aux Vénus Nicéphores.
+
+On peut leur rapporter Vénus _Obsequens_,* en l'honneur de laquelle Fabius Gurges fit bâtir un Temple, parce qu'il croyoit en avoir été secondé dans la guerre contre les Samnites. Les Italiens l'appelloient _Venus post Vota_, parce qu'elle avoit exaucé les Vœux du Consul.
+
+*) Servius ad Virgilii Æneid, lib. 1. vers. 720.
+
+Pompée fit construire le premier Théâtre permanent* qu'il y ait eu à Rome, et afin de rendre cet établissement plus solide, il intéressa la Religion à sa conservation, en faisant élever sur les degrés de ce Théâtre le Temple de Vénus Victrix,* qu'il consacra par des jeux magnifiques, et entr'autres, par un combat de vingt éléphants contre des Gétules qui leur lançoient de loin des javelots. Plutarque dit deux mots de ce Temple, à l'occasion d'un songe qu'eut Pompée. Il s'imagina,* dit-il, entrer aux applaudissemens du peuple dans le Temple de Vénus Victorieuse, et l'orner des dépouilles des ennemis [GREEK]. Si cette vision inspira d'un côté de la confiance à Pompée, elle l'effraya d'un autre, parce qu'il craignoit de contribuer à la gloire de César, dont l'origine remontoit à Vénus. Ce Temple étoit, selon Publ. Victor, _de Regionibus Romæ_, dans le neuvieme quartier. Il fut construit dans le second Consulat de Pompée, l'an de Rome 700.
+
+*) Tacit. Annal. lib. 14. §. 20.
+
+*) Plin. Hist. Natur. lib. 8. cap. 7. tom. 1. pag. 438.
+
+*) Plutarch. in Pompeio, pag. 655. D.
+
+César fit vœu, peu avant la bataille de Pharsale,* d'élever à Rome un Temple à Vénus Victorieuse, s'il remportoit la victoire. Il accomplit son vœu ; mais comme ce Temple portoit aussi le nom de Venus _Genetrix_, j'en parlerai à cet Article. Le même Prince donna à cette bataille pour mot du Guet Vénus Nicéphoros,*
+Victorieuse ; mais depuis, à la bataille de Cordoue* contre le jeune Pompée, il donna simplement _Vénus_ pour mot du Guet.
+
+*) Appian. de Bellis Civilibus, lib. 2. pag. 770.
+
+*) Idem de Bellis Civilibus, lib. 2. pag. 780.
+
+*) Idem ibid. lib. 2. pag. 804.
+
+On plaçoit souvent les Temples de Vénus près de ceux de la Victoire. A Pergame, le Nicéphorium,* ou Temple de la Victoire, étoit près de celui de Vénus. Philippe, Roi de Macédoine, les avoit détruits, et Attale, Roi de Pergame, en demandoit le rétablissement. Il y avoit un bois sacré à l'entour de ce Temple ; le même Prince s'engagea* par le Traité à le faire replanter et à envoyer des Jardiniers pour en prendre soin.
+
+*) Polyb. lib. 17. §. 2. vol. 2. pag. 1035. conf. Tit. Liv. lib. 32. cap. 33.
+
+*) Idem, lib. 17. §. 6. pag. 1039 et 1040.
+
+Jacques Gronovius dit avoir vu dans la Collection de Modeus une Médaille de Julia Domna, avec ces mots _Venus Victor_.
+
+Il y a dans Mezzabarba une Médaille de Jules César, qualifié Imp. 4, avec cette légende _Veneri Victrici vota_. On en voit aussi une de Faustine avec cette légende _Veneri Victrici_. On n'auroit jamais fini, s'il falloit rapporter toutes les Médailles où elle se trouve ainsi nommée.
+
+Une Médaille de l'Empereur Tite, représente Vénus presque nue, apuyée sur une colonne, tenant un casque de la main droite et une pique de la gauche, avec ces mots : _Vene. Victr._
+
+Au revers d'une Médaille de la jeune Faustine est une Vénus _Victriæ_ avec une Victoire d'une main et un bouclier de l'autre, et ces mots : _Venus Victriæ_.
+
+Les Tifernates avoient dédié un Temple à Vénus Victorieuse, comme on le voit par une Inscription rapportée* dans la seconde partie des Inscriptions Antiques de l'Etrurie.
+
+*) Gori Museum Etruscum, pag. 118 et 119.
+
+Varron donnoit une raison plus philosophique du surnom de _Victrix_. J'en ai fait usage ci-dessus, _page_ 91.
+
+Quoique Vénus ne soit jamais plus sûre de la Victoire que lorsqu'elle est sans armes et sans habits, cependant on la représentoit aussi armée et le casque en tête. _Militari sub galeâ puella delitescens_.* On la voyoit en cet état à Cytheres ; mais comme c'étoit une Vénus Céleste, j'en ai parlé à l'Article d'Uranie, _page_ 64.
+
+*) Arnob. Adversus Gentes. lib. 6. pag. 209.
+
+La mollesse étoit bannie de Sparte* ; la sévérité des mœurs en éloignoit la volupté ; et la Déesse des plaisirs y avoit pris elle-même une teinte des mœurs du Pays. Lorsqu'elle eut* traversé l'Eurotas, disent les Spartiates, elle quitta son miroir, sa robe flottante et son ceste, et par honneur pour Lycurgue, elle s'arma d'une pique et d'un bouclier. Elle étoir en effet armée dans un Temple qu'on lui avoit élevé à Sparte sur une Colline près de celui d'Esculape, comme on le voit dans Pausanias.* Il y a dans l'Anthologie une Epigramme d'Antipater de Sidon* sur cette Vénus, qu'on ne sera pas fâché de trouver ici. « Vénus n'est point à Sparte telle que dans les autres Villes, vêtue d'habits efféminés ; un casque lui sert de coëffure, et elle tient à la main une pique au lieu d'une branche d'oranger : car il ne convient pas à la femme du Dieu de Thrace et à une Lacédémonienne d'être sans armes. »
+
+*) On pourroit croire et Vénus déplacées ; mais voyez ce que j'ai dit à ee sujet, pag. 214 et 215.
+
+*) Plutarch. de Fortunâ Romanorum, p. 317. F.
+
+Brodeau a confondu dans ses Notes cette Vénus avec celle dont j'ai parlé, _page_ 169.
+
+Nonnus nous apprend* que cette Statue étoit de bronze :
+
+[GREEK].
+
+« N'entrez pas à Sparte, dont les Citoyens guerriers ont une Statue de bronze de Vénus Armée. » Cette Statue avoit été élevée à l'occasion d'un exploit des femmes de Lacédémone. Tandis que les Lacédémoniens tenoient* les Messéniens assiégés, ceux-ci sortirent de la Ville sans être apperçus des assiégeans, et coururent à Sparte pour la piller. Mais les Lacédémoniennes allerent au-devant d'eux, les battirent et les mirent en fuite. Les Lacédémoniens ayant eu avis du dessein des ennemis coururent après eux. Ayant rencontré leurs femmes armées, ils les prirent pour les Messéniens, et déja ils se disposoient au combat, lorsque leurs femmes, s'étant apperçues de la méprise, se découvrirent le corps. Ils les reconnurent à l'instant, et dans l'ardeur qui les pressoit, ils eurent commerce avec elles, armés comme ils étoient, pêle-mêle, et sans se donner le soin de reconnoître chacun sa femme. Pour conserver la mémoire de cette action, on éleva à Vénus Armée un Temple avec une Statue.
+
+*) Pausanias Laconic. sive liv. 3. cap. 15. p. 246.
+
+*) Anthologia Græca. ex Edit. Brodæi, pag. 465.
+
+*) Nonnus Dionysiacorum, lib. 35. vers. 175.
+
+*) Lactan. de Falsâ Religione, lib. 1. §. 20. p. 109.
+
+Nonnus* faisoit allusion à cette Statue, lorsque Junon, irritée contre Sémélé et Bacchus, dit à Vénus : « Je me retirerai à Argos et dans l'illustre ville de Mycenes ; Mars votre époux m'y suivra. Et vous, allez dans votre ville de Sparte ; qu'elle vous reçoive avec votre armure de bronze. »
+
+*) Nonnus Dionysiacor. lib. 31. vers. 259.
+
+Prudence avoit sans doute en vue cette Statue, lorsqu'en se moquant des Dieux du Paganisme, il dit que Vénus ne vint point au secours du Tyran Maxime avec ses Armes, ni Minerve avec son Egide.
+
+_Non Armata Venus, non tunc Clipeata_  
+_Minerva_  
+_Venêre auxilio.*_
+
+*) Prudentius contra Symmachum lib. 2. v. 534.
+
+On lit dans* l'Anthologie plusieurs Epigrammes sur cette Statue de Vénus Armée. Elles alongeroient trop ce Mémoire. Je ne puis cependant résister à la tentation d'en rapporter une de Philippe de Thessalonique, à laquelle je joindrai les imitations qu'a fait Ausone de la troisieme Epigramme de la _page_ 325, Edition toute Grecque d'Henri Etienne.
+
+*) Anthologia Græca, lib. 4. cap. 12. n°. 20 _etc._ pag. 325.
+
+« Vénus,* qui aimez à rire, et à fréquenter la chambre nuptiale, qui vous a donné ces armes guerrieres ? Vous vous plaisiez aux chants d'allégresse, aux sons harmonieux de la flûte, et en la compagnie du blond Hyménée. A quoi bon ces armes ? Ne vous vantez-vous pas d'avoir dépouillé le terrible Mars ? Que Vénus est puissante ! »
+
+*) Ibidem.
+
+_Armatam vidit Venerem Lacedæmone Pallas._
+
+_Nunc certemus, ait judice vel Paride._  
+_Cui Venus : armatam tu me, temeraria, temnis,_  
+_Quæ, quo te vici tempore, nuda fui ?_
+
+_Armatam Pallas Venerem Lacedæmone visens,_  
+_Visne, ut judicium sic ineamus ? ait._  
+_Cui Venus arridens : quid me galeata lacessis ?_  
+_Vincere si possum nuda, quid arma gerens ?_
+
+*) Ausonius Epigrammat. 42 et 43.
+
+Les charmes de la Déesse étoient ses véritables armes. C'est de cette maniere qu'il faut entendre un vers de Nonnus,* où cet Auteur dit que Jupiter ayant apperçu Vénus armée, son foudre et son tonnerre lui devinrent inutiles. Il n'est point question d'armes réelles, mais d'armes métaphoriques.
+
+*) Nonnus Dionysiacorum lib. 5. vers. 618.
+
+On voyoit dans la même ville de Sparte, derriere le Temple de Minerve Chalciœcos* celui de Vénus _Area_ ou Guerriere. Les Statues de la Déesse étoient aussi anciennes qu'il y en eut en Grece. La Traduction de l'Abbé Gédoyn donne à penser que ces Statues n'étoient point celles de Vénus ; et d'ailleurs elle ajoute avec le Latin qu'elles étoient de bois, quoique le terme [GREEK] convienne aussi-bien à un ouvrage en pierre qu'à un en bois, comme je l'ai prouvé plus haut, _page_ 166.
+
+*) Pausanias Laconic. sive lib. 3. cap. 18. p. 251.
+
+La Déesse étoit aussi armée à Amycles, et delà elle avoit pris le nom d'Amyclée, comme on peut l'inférer du sixieme vers du Livre quarante-troisieme des Dionysiaques de Nonnus.
+
+Si de Lacédémone nous passons à Corinthe, nous y verrons aussi Vénus Armée. Son Temple et sa Statue* armée étoient à l'entrée de la Citadelle. Cela faisoit peut-être allusion à quelque exploit des femmes de Corinthe. Mais je pense que c'est le même Temple que Médée* éleva dans cette Ville à Vénus par l'ordre de Junon. Ce Temple étoit devenu fameux, au rapport de Theopompe,* par la priere qu'y firent à Vénus les femmes de Corinthe d'inspirer à leurs maris le courage de combattre contre les Perses. On avoit mis dans le Temple, à main gauche, en entrant, une Inscription en vers Elégiaques, qui en perpétuoit la mémoire. Athénée* nous apprend qu'elle étoit de Simonide. Il nous l'a conservée, ainsi que le Scholiaste de Pindare à l'endroit cité ; mais comme elle est altérée, je vais la mettre ici telle qu'on doit la lire d'après ces Auteurs qui se corrigent mutuellement.
+
+[GREEK].
+
+[GREEK].
+
+*) Idem Corinthiac. sive lib. 2. cap. 4. p. 121.
+
+*) Scholiast. Pindaii ad Olympic. 13. vers. 32. pag. 146 col. 1 lin. 2.
+
+*) Ibid. lin. 7.
+
+*) Athen. Deipnosophist. lib. 13. c. 4. p. 573. D.
+
+Je ne m'arrêterai point à des Notes critiques qui m'écarteroient de mon objet ; mais je me flatte que si l'Académie veut bien jetter les yeux sur Athénée et le Scholiaste de Pindare, elle approuvera mes corrections.* Quoique la langue de l'ancienne Grece soit très-familiere à mes Juges, je crois devoir joindre une traduction de cette Inscription, afin d'observer la loi prescrite par l'Académie d'écrire en François ou en Latin. « Ces femmesci ont adressé leurs prieres à Vénus pour les Grecs et pour leurs Citoyens guerriers : car la divine Vénus ne voulut pas que la Citadelle des Grecs tombât au pouvoir des Medes armés d'arcs. » Il s'agit de cette guerre où les Grecs acquirent tant de gloire contre les Perses aux journées de Salamine et de Platées. Ce fut sans doute par cette raison qu'on représenta la Déesse armée.
+
+*) Ces corrections sont en partie de M. Brunck, et je les ai tirées de ses Analectes, qui paroîtront incessamment ; mais je ne pouvois citer le nom de ce Savant qui m'honore de son amitié, sans m'exposer, à être reconnu. Voyez Analecta Poetarum Græcorum. Tom. 1. pag. 132. 36.
+
+Je ne dois pas passer sous silence, qu'Athénée* qui raconte la même Histoire d'après Théopompe et d'après Timée, attribue aux Courtisannes de Corinthe ce que le Scholiaste de Pindare dit des Corinthiennes. Il ajoute que celles qui assisterent à ces supplications, furent peintes par ordre des Corinthiens dans un tableau qu'on voyoit encore de son temps.
+
+*) Athen. Deipnosoph. lib. 13. cap. 6. p. 573. D.
+
+Il y avoit aussi dans le même Temple une Statue du Soleil,* et une autre de l'Amour qui tenoit un arc. Les Corinthiens racontoient à ce sujet que Briarée avoit adjugé au Soleil la montagne sur laquelle étoit bâtie leur Citadelle, et que le Soleil l'avoit cédée a Vénus. Stace l'appelle* par cette raison _Collis Isthmiæ Diones_.
+
+*) Pausanias Corinthiac. sive lib. 2. cap. 4. p. 121.
+
+*) Stat. Sylvar. lib. 2. sylv. 7 vers. 2.
+
+Il y avoit en Cypre une Vénus armée d'une pique, dont j'ai parlé à l'occasion du culte qu'on lui rendoit* en cette isle, et une autre à Cytheres dont j'ai dit aussi deux mots, en faisant mention de Vénus-Uranie.* Je pourrais terminer cet article par les Vénus armées qu'on voit aux Planches 4 et 5 du premier volume de l'Antiquité Expliquée par Dom de Montfaucon ; mais pourquoi copier un ouvrage qui est entre les mains de tout le monde ?
+
+*) Ci-dessus, pag. 58.
+
+*) Ci-dessus, pag. 64.
+
+César, qui prétendoit descendre de Vénus par Jule, fils d'Enée, avoit toujours au doigt un anneau* où elle étoit représentée armée. Auguste le porta ensuite, et en fit souvent usage.*
+
+*) Dio Cassius Histor. Roman. lib. 43. §. 43. p. 370. lin. 79.
+
+*) Idem lib. 47. §. 41. pag. 520 lin. 19 et 20.
+
+Il y avoit à Rome, dans le _Forum Cæsaris_, c'est-à-dire, dans le huitieme quartier, deux Statues de Vénus,* dont l'une étoit cuirassée. J'en parlerai plus bas à l'Article de Vénus _Genetrix_.
+
+*) Publ. Victor de Regionibus Romæ. Rosin. Antiquit. Roman. lib. 1. cap. 13.
+
+Servius fait aussi mention de Vénus armée ; mais il prétend* qu'elle étoit aussi appellée _Cloacina_ par les Romains, parce que _Cloare_ signifie, dit-il, combattre. Ce Grammairien me paroît s'être trompé, comme je l'ai fait voir à l'article de Venus Myrtea, _page_ 211.
+
+*) Servius ad Virgil. Æneid. lib. 1. vers. 720.
+
+Vénus _Militaris_ et _Equestris_* ont beaucoup de rapport à Vénus armée, et doivent trouver place ici.
+
+*) Idem ibidem.
+
+Vénus est représentée dans le Museum Etruscum* avec l'habit Militaire qui descend jusqu'au milieu des cuisses qu'elle a nues ainsi que les jambes. Sa chaussure est Etrusque, et elle a la tête couverte d'un casque avec plusieurs cornes. M. Gori remarque que ces sortes de casques étoient en usage chez les Etrusques, afin d'inspirer la terreur aux ennemis. Il auroit pu ajouter que les Scythes, les Germains, les Gaulois, _etc._ se couvroient autrefois la tête avec des têtes d'animaux, afin de se rendre plus terribles ; que, dans la suite, ces peuples porterent des casques qui imitoient ces têtes, et que les Etrusques prirent cet usage des Gaulois, qui s'emparerent d'une partie de l'Italie. Le même M. Gori prétend que Vénus enseigna l'art de forger le fer, ou même qu'elle l'inventa, et là-dessus il cite Coluthus _de Raptu Helenæ_, qui n'en dit rien du tout. Cet Ouvrage est fait en général avec beaucoup de négligence.
+
+*) Gori Museum Etruscum, Tab. 42 primæ classis pag. 117.
+
+César fit élever à Vénus, pendant son troisieme Consulat l'an 708 de Rome, un Temple* sous le nom de Vénus _Genetrix_, comme à l'Auteur de sa race et le consacra par toutes sortes de jeux, et entr'autres, par une chasse qu'on donna dans un Amphithéâtre construit dans ce dessein. Dio Cassius ne dit pas expressément que cette Vénus étoit surnommée _Genetrix_ ; mais, outre que cela est suffisament indiqué par ces termes, _comme à l'Auteur de sa race_, on sait par Appien que César* fit élever un Temple à Vénus _Genetrix_, en conséquence d'un vœu qu'il avoit fait un peu avant la bataille de Pharsale. Le passage de Pline le Naturaliste, que je vais rapporter, le prouve pareillement. Peut-être ce Temple portoitil aussi le nom de Vénus Victorieuse. Du moins Appien* le nomme-t-il ainsi en par lant de ce vœu, et Servius* dit que César consacra Vénus _Genetriæ_ et _Victriæ_ en conséquence d'un songe.
+
+*) Dio Cassius lib. 43. §. 22. pag. 356. lin. 67.
+
+*) Appian. de Bellis Civilib. Roman. lib. 2. p. 803.
+
+*) Idem ibid. lib. 2. pag. 770.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+Ce Temple étoit de marbre.* César y dédia six Ecrins de pierres précieuses : _Cæsar Dictator sex dactyliothecas in Æde Veneris Genetricis consecravit_.* Ce Temple* achevé, Jules César établit, peu de jours avant qu'il eut été tué, un Collége de Prêtres pour faire les jeux de la dédicace. Ces jeux n'eurent point lieu à cause de sa mort. Mais pendant ses funérailles, on fit au rapport de Servius,* des sacrifices à Vénus _Genetrix_. Octavien célébra dans la suite ces jeux avec beaucoup de magnificence,* et Matius en prit soin, par égard pour la mémoire de Jules César, avec qui il avoit été lié de la plus étroite amitié, comme il nous l'apprend dans une Lettre à Cicéron.* Appien fait mention* de ces mêmes jeux, et ajoute qu'ils avoient été institués en l'honneur de Vénus _Genetrix_ : [GREEK]. Ce fut pendant ces jeux* que parut cette comete chevelue, dont Pline le Naturaliste,* Séneque* et tant d'autres Auteurs ont fait mention, et que le peuple regarda comme l'Astre de César, et comme la preuve que ce Prince avoit été admis au rang des Immortels. C'est ce qui donna occasion à Virgile, dont j'estime autant les talens, que je méprise la bassesse avec laquelle il a flatté les Despotes de Rome, de dire :
+
+_Ecce Dionæi processit Cæsaris astrum :_  
+_Astrum, quo segetes gauderent frugibus._*
+
+*) Ovid. Ars Amator. lib. 1. vers. 81.
+
+*) Plin. Histor. Natural. lib. 37. cap. 1. tom. 2. pag. 766. lin. 4.
+
+*) Idem ibid. lib. 11. cap. 25. tom. 1. pag. 890. in. 13.
+
+*) Servius ad Virgilii Æneid. lib. 8. vers. 681.
+
+*) Dio Cassius lib. 45. §. 6. pag. 423.
+
+*) Ciceronis Epist. ad Familiares lib. 11. Epist. 28.
+
+*) Appianus de Bellis Civilib. Romanor. lib. 3. pag. 883.
+
+*) Dio Cassius lib. 45. §. 7. pag. 423.
+
+*) Plin. Histor. Natural. lib. 2. cap. 25. tom. 1. page. 89.
+
+*) Senecæ Naturales Quæstiones lib. 7. cap. 17. pag. 831.
+
+*) Virgilli Eclog. 9. vers. 47.
+
+Ce fut pouf perpétuer la mémoire de cette comete, qu'Octavien fit placer* dans ce Temple une Statue de bronze de César avec la comete sur la tête.
+
+*) Dio Cassius lib. 45. §. 7. pag. 423.
+
+On célébra* aussi l'an 720 de Rome des jeux en l'honneur de Vénus _Genetrix_ [GREEK] et l'an 712 l'on avoit porté en pompe* dans les jeux du Cirque la Statue de César avec celle de Vénus.
+
+*) Idem lib. 49. §. 42 pag. 599.
+
+*) Idem lib. 47. §. 18 pag. 503. lin. 22.
+
+Ce Temple étoit, selon _Publ. Victor de Regionibus Romæ_, dans le huitieme quartier. C'étoit un édifice superbe avec un pycnostyle, dont la proportion est, quand l'entrecolonnement a la largeur du du diamètre d'une colonne et demie, comme il est pratiqué, dit Vitruve,* au Temple de Jules César, et à celui de Vénus qui est sur la Place publique. Il y avoit aussi contre ce Temple un terrein consacré, dont César* fit un _Forum_, non pour la vente des choses nécessaires à la vie, mais pour les affaires, où l'on rendoit la justice, et où l'on venoit s'instruire dans la Jurisprudence, comme c'étoit l'usage chez les Perses. C'est ce que nous savons encore par ces vers d'Ovide :
+
+*) Vitruv. lib. 5. cap. 2.
+
+*) Appian. de Bellis Civilibus Romanor. l. 2. p. 803.
+
 ...
