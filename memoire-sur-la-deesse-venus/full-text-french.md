@@ -2522,4 +2522,403 @@ Ce Temple étoit, selon _Publ. Victor de Regionibus Romæ_, dans le huitieme qua
 
 *) Appian. de Bellis Civilibus Romanor. l. 2. p. 803.
 
+_Et fora conveniunt (quis credere possit ? ) amori ?_ 
+_Flammaque in arguto sæpe reperta foro._  
+_Subdita qua Veneris facto de marmore templo_  
+_Appias expressis aëra pulsat aquis :_  
+_Illo sæpe loco capitur consultus Amori :_  
+_Quique aliis cavit, non cavet ipse sibi._  
+_Illo sæpe loco desunt sua verba diserto :_  
+_Resque novæ veniunt, causa que agenda sui est._  
+_Hunc Venus e templis, quæ sunt confinia, ridet._  
+_Qui modo patronus, nunc cupit esse cliens._
+
+Ce Forum, et par conséquent ce Temple, n'étoit pas loin de la Voie Sacrée. Ovide a dit* :
+
+_Hæc sunt fora Cæsaris, inquit :_  
+_Hæc est à sacris quæ via nomen habet._
+
+Nous apprenons de Publ. Victor que dans le _Forum_ de César étoient deux Statues de Vénus, l'une revêtue d'une cuirasse, dont j'ai dit un mot, _page_ 226, et l'autre l'ouvrage d'Arcesilaus, célebre Statuaire en argille,* dont les Artistes eux-mêmes achetoient plus cher les modeles que les ouvrages de grand nombre de Statuaires. Elle fut placée dans le _Forum_ avant qu'elle eut été achevée, à cause de la précipitation avec laquelle on en fit la dédicace. Il dédia aussi devant le même Temple* des tableaux d'Ajax et de Médée. Ils étoient de Timomachus,* Peintre célebre de Byzance, contemporain de César, qui les avoit achetés 80 talens, c'est-à-dire, 192,000 livres de notre monnoie, suivant l'évaluation du P. Hardouin, afin de les placer dans le Temple de Vénus _Genetrix_. On estimoit beaucoup l'Oreste, et l'Iphigénie en Tauride du même Peintre, mais il paroissoit s'être surpassé dans le tableau de la Gorgone.
+
+*) Ovid. Ars Amator. lib. 1. vers. 79. _etc._
+
+*) Idem Trist. lib. 3. Eleg. 1. vers. 27. _etc._
+
+*) Plin. Histor. Natural. lib. 35. cap. 12. tom. 2. pag. 711.
+
+L'on veut connoître ses autres ouvrages, on peut consulter l'endroit cité de Pline.
+
+Il consacra dans le même Temple* une cuirasse ornée de perles qui venoient de la Bretagne, connue aujourd'hui sous le nom d'Angleterre. Il fit aussi faire la statue* du cheval qu'il avoit coutume de monter, et la fit placer devant ce même Temple. Ce cheval avoit cela de particulier, que ses pieds de devant ressembloient beaucoup à ceux des hommes.
+
+*) Idem lib. 35. cap. 4. tom. 2. pag. 683 lin. 28.
+
+*) Idem lib. 7. cap. 38. tom. 1. pag. 396 lib. 35. cap. 11. tom. 2. pag. 705 lin. 16.
+
+*) Idem lib 9. cap. 35. tom. 1. pag. 523. lin. 3.
+
+*) Idem lib. 8. cap. 42. tom. 1. pag. 466. lin. 4. Suetonius ia Cæsare, §. 61.
+
+César, qui n'étoit pas moins galant que brave, fit mettre à côté de la Statue de la Déesse celle de Cleopatre, qu'on voyoit encore du temps d'Appien, et l'associa en quelque sorte par-là aux honneurs de la Divinité. Car on sait ce que c'étoient que les Dieux appellés [GREEK], ou honorés dans le même Temple. Cette Statue étoit d'or.* Auguste avoit dessein de l'ôter de ce Temple, si l'on en croit Plutarque* ; mais Archibius, qui avoit été ami de Cléopatre, donna à ce Prince mille talens pour l'en détourner. Le fait peut être vrai, quoique la somme soit exorbitante, et qu'il en faille probablement rabattre beaucoup. M. Reimar prétend, dans ses notes sur le passage de Dio Cassius que je viens de citer, que Plutarque se trompe, et qu'il s'agit de la Statue de Cléopatre, bisayeule de la derniere ; mais Philon, dont il cherche à s'apuyer, ne dit rien de pareil, comme on peut le voir, vol. 2e. _pag._ 565, Edition d'Angleterre.
+
+*) Appianus de Bellis Civilibus Romanor. lib. 2. pag. 803.
+
+*) Dio Cassius lib. 51, §. 22 pag. 655. lin. 82.
+
+*) Plutarch. in Antonio, pag. 955. C.
+
+Auguste fit aussi mettre dans ce Temple le Tableau de Venus Anadyomene, ou sortant de la mer, dont j'ai dejà parlé, _pag._ 101 _etc._
+
+C. Caligula ayant perdu sa sœur Drusille, en fit placer la Statue dans ce Temple.* Elle étoit de la grandeur de celle de la Déesse, et on lui rendit les mêmes honneurs.
+
+Le culte de Vénus _Genetrix_ passa dans les provinces avec celui de Jules-César. Une Inscription d'Ebora, en Espagne, rapportée par Gruter, _pag._ 225, nous montre les Décurions de la ville érigeant un monument à César, et les Dames portant un présent à Vénus _Genetrix_ :
+
+_Divo Julio_  
+_Lib. Jul. Ebora_  
+_Ob illius in Mun. et Mun._  
+_Liberalitatem_  
+_Ex D. D. D._  
+_Quojus dedicatione_  
+_Veneri Genitrici_  
+_Cæstum Matronæ_  
+_Donum Tulerunt._
+
+Je ne dois pas oublier qu'on posa à Rome un petit* édifice doré, fait sur le modele du Temple de Vénus _Genetrix_, et qui devoit servir aux funérailles de Jules-César.
+
+*) Dio Cassius lib. 59. §. 2 pag. 914 lin. 37.
+
+*) Suetonius in Cæsare §. 84.
+
+On ne trouve point dans l'histoire de traces du culte de Vénus _Genetrix_ avant César, qui l'établit, comme je l'ai déjà observé,* parce qu'il s'imaginoit descendre de Jules, petit-fils de Vénus. Il est vrai que Macrobe* dit que l'on invoquoit dans les prieres Vénus _Genetrix_ ; mais il ajoute que cela se pratiquent de son tems, et l'on ne peut prouver que ce culte soit antérieur à l'époque du crédit de la Maison Julia. Mais les Grecs adoroient cette Déesse sous le nom de [GREEK] ou _Genetrix_, parce quelle présidoit à la génération. [GREEK], dit le Scholiaste d'Aristophane sur les Nuées, vers. 52. [GREEK].
+
+*) Ci-dessus, pages 225 et 227.
+
+*) Macrob. Saturnal. lib. 1. cap. 12. pag. 170.
+
+Les Romains en célébroient la fête le cinq des Calendes d'Octobre, comme on le voit dans un fragment des Fastes trouvé à Rome.
+
+Vénus éroit adorée à Rome sous le nom de Vénus _Calva_. Voici à quelle occasion. Les Gaulois* s étant emparés de la ville de Rome, et faisant le siége du Capitole, les Dames Romaines donnerent leurs cheveux pour en faire des cordages. Les Romains, par reconnoissance, éleverent à Vénus un Temple avec une Statue sous ce nom.
+
+*) Julius Capitolinus ad Maximinum Juniorem, §. 7, pag. 73. Lactantius de Falsâ Religione, pag. 109.
+
+C'est aussi la raison qu'apporte Servius* ; mais il ajoute que d'autres croyoient qu'on lui avoit donné ce nom parce qu'elle se joue des amans, qu'elle se plait à les tromper : _Quod corda amantum calviat, id est, fallat atque eludat_. Quoiqu'il en soit, la Déesse avoit dans le huitieme quartier de Rome deux Temples sous ce nom, l'un ancien, l'autre récent, comme l'a fait voir Onuphrius Panvinius, d'après Sextus Rufus et Publ. Victor _de Regionibus Romæ_. Cependant Alexandre Donat* conjecture, d'après la citation de Lactance que je viens d'apporter, que ce Temple étoit dans le Capitole, comme si les Romains n'avoient pu l'élever autre part.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+*) Alexand. Donatus de Urbe Româ, lib. 2. cap. 10.
+
+S'il y avoit à Rome une Vénus Chauve, on y voyoit aussi une Statue de cette Déesse tenant un peigne. Les Dames* Romaines s'étant toutes fait raser la tête, à cause d'une démangeaison insupportable, les peignes leur devinrent inutiles ; mais leurs cheveux étant revenus, après un vœu fait à Vénus, elles éleverent à cette Déesse une Statue tenant un peigne. Cette Statue avoit été transportée à Constantinople, ainsi que les deux suivantes.
+
+*) Georg. Codinus de Originibus Constantinop. cap. de Signis, Statuis et aliis spectatu dignis Constantinopoli. Suidas voc. [GREEK].
+
+Les Romains* représentoient aussi cette Déesse avec une barbe et les parties des deux sexes ; de la tête à la ceinture, homme ; de la ceinture aux pieds, femme ; parce qu'elle présidoit, disoientils, à toute génération. Cela a beaucoup de rapport à l'Aphroditos de ceux d'Amathunte, dont j'ai parlé ci-dessus, _pag._ 46.
+
+*) Idem ibidem.
+
+On peut corriger le texte de Suidas par celui de Codin, et Suidas peut rendre le même bon office à Codin : par exemple, cet Auteur disant : [GREEK], il est clair qu'il faut lire [GREEK].
+
+Ils la représentoient encore à cheval,* parce que son fils Enée monta à cheval lorsqu'il eut abordé en Italie, et qu'il honora sa mere d'une pareille Statue.
+
+*) Idem ibidem.
+
+Ces divers surnoms ne me surprennent pas, mais celui de Libitine, sous lequel quelques Auteurs prétendent qu'elle étoit connue à Rome, m'étonne d'autant plus, qu'il convient proprement et particuliérement à Proserpine. Denys d'Halicarnasse est le premier* qui nous ait instruit de cette particularité ; mais après lui Plutarque dans son Numa, et ensuite dans ses Questions Romaines, nous dit la même chose. Pourquoi, demande-t-il dans ce dernier ouvrage,* vendoit-on dans le temple de cette Déesse tout ce qui concernoit les funérailles. Seroit-ce, dit-il, une institution de Numa, afin de nous apprendre à n'avoir pas ces choses en aversion, et à ne les point éviter comme des souillures ? ou plutôt, n'auroit-on pas fait présider une seule et même Déesse à la naissance et à la mort, pour nous avertir que tout ce qui naît est sujet à la mort.
+
+*) Dionys. Halicarnass. Antiquit. Roman. lib. 4. cap. 15. pag. 212, lin. 3.
+
+*) Plutarch. in Numâ, pag. 67. E.
+
+*) Plutarch. Quæstion. Roman. pag. 269. B.
+
+Quelque ingénieuses que soient ces raisons, je n'en suis pas moins persuadé que Denys d'Halicarnasse et Plutarque, qui ne sçavoient que médiocrement la langue latine, comme il seroit aisé de le prouver, si cela étoit nécessaire, ont confondu Libitine avec la Déesse Libentine, qui étoit une Vénus, comme je l'ai remarqué, _pag._ 86.
+
+Je sçais qu'il y avoit à Delphes une petite Statue de Vénus _Epitymbia_,* auprès de laquelle on appelloit les morts aux libations. Je n'en persiste pas moins dans mon sentiment, car si cela avoit rapport à la Déesse Libitine, comme le pensoit Plutarque, pourquoi cette coutume ne s'observoit elle qu'à Delphes ? pourquoi n'étoit elle point établie dans tous les pays où la Religion de la Grece et de Rome étoit dominante ? pourquoi ne connoissons-nous cette Vénus que par deux Grecs, peu instruits de la langue latine ? Il est bien plus naturel de croire que la cérémonie qui s'observoit à Delphes, tenoit à quelque usage particulier à cette ville, ou qu'elle étoit fondée sur quelque aventure que nous ignorons, et que Plutarque ignoroit comme nous.
+
+*) Idem ibidem.
+
+Peut-on se flatter de découvrir ce qui avoit fait donner à Argos le surnom de _Tumboruchos_ à Vénus, dont nous parle Clément d'Alexandrie.* On pourroit proposer là-dessus mille conjectures, toutes plus ingénieuses les unes que les autres, et si par hazard il s'en trouvoit une de vraie, comment s'en assurer ? J'en dis autant de la Vénus _Epitymbia_. Plutarque ignoroit la cause de ce surnom : trompé ensuite par le mot _Libitina_ qu'il confondoit, et qu'il étoit si aisé à un étranger de confondre avec _Libentina_, il crut entrevoir un rapport entre _Libitina_ et Vénus _Epitymbia_, rapport nul et fondé seulement sur une méprise. Il le saisit, ce prétendu rapport, et nous le présente comme une vérité.
+
+*) Clemens Alexandrin. in Protreptico, pag. 33. lin. 6.
+
+Ce que je disois, il n'y a qu'un instant, qu'une aventure particuliere pouvoit avoir donné occasion au surnom de Vénus _Epitymbia_, se confirme par ceux d'_Automata, d'Epidæta_ qu'avoit cette Déesse, et dont nous ignorerions à jamais la raison, si elle ne nous avoit été conservée par Servius.
+
+Alexis, dit-il, et Mélibœa* s'aimoient mutuellement, et s'étoient cent fois juré de s'épouser. Mais les parens de Mélibœa donna son pays, la jeune personne se précipita du haut de la maison, et ne s'étant point fait de mal, elle se sauva sur le bord de la mer, et monta dans un bâteau dont la corde se détacha à l'instant. Les vents et la mer pousserent le bâteau à l'endroit où s'étoit retiré son amant, et elle arriva dans le tems qu'il alloit se mettre à table avec les amis. Ils se marierent, et par reconnoissance ils donnerent à Vénus le surnom d'_Automata_, parce que les cordes du bâteau s'étoient détachées d'elles-mêmes, et celui d'_Epidætia_, parce que Mélibea étoit survenue pendant les préparatifs du repas.
+
+*) Servius ad Virgilii Æneid. lib. 1. vers. 720.
+
+Je ne dois pas dissimuler qu'il y avoit dans les Enfers une Vénus, mais elle étoit vierge, et ce ne pouvoit être Proserpine. D'ailleurs, l'Inscription qui en parle ne lui donne aucun des attributs de Libitine. _Vid. Donian. Inscription. in Classe 1. num. 54_.
+
+Vénus présidoit aux jardins, c'étoit un un de ses attributs, comme nous l'apprend Plaute, cité par Pline le Naturaliste.* On lit dans Varron : _Adveneror Minervam et Venerem, quarum unius procuratio Oliveti, alterius Hortorum_.* On peut encore consulter le même Auteur _de Linguâ Latinâ, lib. 5. pag, 48_. Festus dit aussi aux mots _Rustica Vinalia_, que les jardins sont sous la protection de cette Déesse : _Omnes horti in tutelâ Veneris esse dicuntur_ : et nous savons par une Inscription rapportée par Gruter, _page 39_, qu'il y avoit un Temple de Vénus dans les jardins de Salluste : _Æditui Veneris hortorum Sallustianorum_. C'est le même, à ce qu'il paroît, dont fait mention Dom de Montfaucon _in Diario Italico, pag. 228_. « Gabriel Vacca, y est-il dit, faisant creuser dans sa vigne, située aux jardins de Salluste, près de la Porte Salaria,* trouva un grand édifice de forme ovale, autour duquel régnoit un portique foutenu de colonnes de marbre jaunâtre, dont chacune avoit dix-huit palmes de haut. Le chapiteau et les bases étoient d'ordre corinthien. Il y avoit à cet édifice quatre porte où l'on montoit par autant d'escaliers. Le pavé étoit de marbre de différentes couleurs. A chaque porte il y avoit deux colonnes d'albâtre oriental, si transparent que les rayons du soleil le perçoient aisément. » Ce temple étoit dans le sixieme quartier.
+
+*) Plin. Histor. Natural. lib. 19. cap. 4. tom. 2. pag. 162 lin. 7.
+
+*) Varro de Re Rusticâ, lib. 1. cap. 1. §. 6.
+
+*) C'est la même que la Porte Colline.
+
+Je crois devoir rapporter à la Vénus des jardins, celle qui étoit surnommée _Frutis_, dont parle Solin,* et dont le temple s'appelloit _Frutinal_, selon Festus : _Frutinal, Templum Veneris Frutis_. Les Anciens disoient _Frux, Fructis_, ou _Frutis, Frutis_, d'où viennent _Frutex, Frutico_. Enée avoit pris cette Vénus en Sicile, et l'avoit placée dans le Latium. Voyez Solin à l'endroit cité ; mais Scaliger prétend,* non sans quelque vraisemblance, que _Fruta_ ou _Frutis_ est un mot tronqué et estropié (par les Etrusques, ajoute M. Gori,* quoique Scaliger ne les nomme pas) pour [GREEK]. Marquardus Gudius* rapporte une Inscription _Veneri jucundæ_, où il est aussi fait mention d'un Frutinal, ou Temple de Vénus Frutis, qui paroît avoir été bâti sur la Voie Appienne, où a été trouvé le marbre qui contenoit cette Inscription.
+
+*) Solini Polyhistor. cap. 2. pag. 10. C.
+
+*) In notis ad Festum, pag. 155.
+
+*) Museum Etruscum. tom. 1. pag. 115.
+
+*) Antique Inscriptiones Græcæ et Latin, pag. 39 n°. 2.
+
+Cette Vénus s'appelloit aussi _Dea Seia_, et présidoit aux semailles, de même que la Déesse _Segetia_ prenoit soin des moissons, et que _Tutilina_ conservoit les bleds dans les greniers. Voyez S. Augustin dans _la Cité de Dieu_, liv. 4. chap. 8.
+
+Il y a voit dans le Pantheon de Jupiter Vengeur à Rome, c'est-à-dire, dans le neuvieme quartier, une Statue de Vénus remarquable par ses pendants d'oreilles. On sait que Cléopatre avoit parié* contre Antoine qu'elle dépenseroit dans un repas dix millions de sesterces. Elle avoit pour pendants d'oreilles les deux plus belles perles qu'on eut jamais vues dans l'Orient. Elle en prit une sur la fin du repas, et la fit dissoudre dans du vinaigre. Elle alloit en faire autant à l'autre, lorsque L. Plancus, juge de la gageure, prononça qu'Antoine avoir perdu. On peut juger, dit Macrobe,* de la grandeur de cette perle, par celle qui reste. Octave s'étant emparé de l'Egypte, après la bataille d'Actium, elle fut portée à Rome, et coupée en deux, pour servir de pendants d'oreilles à la Statue de Vénus qu'on voyoit dans le Panthéon. Ce Temple, achevé par les soins d'Agrippa,* en son troisieme Consulat, comme le porte l'Inscription, et brûlé sous l'Empire de Titus,* l'an de Rome 833, fut dans la suite rétabli, et subsiste encore maintenant sous le nom de Ste Marie de la Rotonde.
+
+*) Plin. Histor. Natural. lib. 9. cap. 35. pag. 523 et 524.
+
+*) Macrob. Saturnal. lib. 2. cap. 13. pag. 260.
+
+*) Dio Cassius, lib. 53. §. 27 pag. 721.
+
+*) Idem lib. 66. §. 24 pag. 1096.
+
+Un Ambassadeur avoit fait présent à Alexandre Sévere, pour l'Impératrice, de deux perles d'un poids et d'une grandeur extraordinaires. Ce Prince, ennemi du luxe, en fit des pendants d'oreilles à une Statue de Vénus. Mais Ælius Lampridius, de qui nous tenons* cette particularité, ne nous apprend rien sur cette Statue, ni sur l'endroit où elle étoit.
+
+*) Ælius Lampridius in Alexandro Severo. Tom. 1. Hist. August. pag. 1005.
+
+Il y avoit aussi à Rome, au pied du Mont Palatin,* un Temple de Vénus et de Rome. Hadrien, fier de cet ouvrage, en envoya le plan à Apollodore, célebre Architecte, qui sous l'empire de Trajan avoit fait le Forum de ce Prince, l'Odeum, le Gymnase _etc._ afin de lui faire voir qu'on pouvoit exécuter quelque chose de grand sans lui, et lui fit en même tems demander ce qu'il en pensoit. Apollodore répondit qu'il auroit fallu le construire dans un lieu plus élevé, afin qu'on pût le voir plus aisément de la Voie Sacrée, et qu'il auroit dû y pratiquer des souterreins, pour y renfermer les machines qui servoient aux jeux, et qui paroissant à l'improviste dans l'amphithéâtre, auroient fait un plus grand effet. Il ajouta encore que les Statues des Déesses étoient plus grandes que la hauteur du Sanctuaire ne le pouvoit permettre. Car, disoit-il, si les Déesses vouloient se lever pour sortir de leur Temple, elles ne le pourroient. Ce dernier défaut étoit aussi celui du Jupiter Olympien de Phidias, qu'on regardoit cependant comme un chef-d'œuvre. Cette Statue étoit si grande, dit Strabon,* que quoiqu'elle fût assise et que le Temple fût très-élévé, elle touchoit presque la voûte de la tête. L'Artiste, continue Strabon, paroît avoir manqué aux proportions ; car si le Dieu eût voulu se lever, il auroit emporté le comble du Temple. Hadrien fut tellement irrité de voir relever des défauts auxquels il ne pouvoit plus apporter de remede, qu'il fît tuer Apollodore.
+
+*) Dio Cassius, lib. 69. §. 4. pag. 1153.
+
+*) Strab. lib. 8. pag. 542. C.
+
+Le Sénat ordonna qu'on placeroit les Statues* d'argent de Marc-Aurele et de Faustine, dans le temple de Vénus et de Rome, et qu'on y éleveroit un autel où seroient tenus de sacrifier les jeunes filles qui se marieroient dans la Ville, ainsi que ceux qui les épouseroient.
+
+*) Dio Cassius lib. 71. §. 31. pag. 1195.
+
+Sévere* étant encore particulier, et prêt à épouser Julia Domna, crut voir en songe l'Impératrice Faustine lui préparer un lit nuptial dans le Temple de Vénus, qui étoit près du palais.
+
+*) Idem lib. 74. §. 3 pag. 1243.
+
+On dispute s'il y avoit deux Temples, ou s'il n'y en avoit qu'un. Des Auteurs de poids adoptent ce dernier sentiment, et Dio Cassius paroît l'appuyer ; mais Prudence et quelques autres sont pour le premier. Ce Poëte Chrétien a dit en effet :
+
+_Urbis Veneris que pari se culmine tollunt_  
+_Templa : simul geminis adolentur tura Deabus._*
+
+*) Prudent. contra Symmach. lib. 1. vers. 221.
+
+Dans le Temple de Junon,* en dedans du Portique d'Octavie, on voyoit deux Statues de Vénus, l'une de Philiscus, l'autre de Polycharme. Celle-ci représentoit Vénus prenant les bains.
+
+*) Plin. Histor. Natural. lib. 36. cap. 5. tom. 2. pag. 730.
+
+Il y avoit dans le Temple de Brutus Callaïcus une Statue de Vénus nue, par Scopas, qui surpassoit, au jugement de Pline,* celle même de Praxitele.
+
+*) Plin. ibid. pag. 727.
+
+On portoit dans la Pompe du Cirque la Statue de Vénus avec celle des autres Dieux :
+
+_At cum pompa frequens cœlestibus ibit eburnis,_  
+_Tu Veneri Dominæ plaude favente manu._*
+
+*) Ovid. Ars Amator. lib. 1. vers. 147.
+
+Dio Cassius remarque que cela arriva l'an 712, à l'occasion des jeux célébrés en l'honneur de Vénus _Genetrix_, comme je l'ai observé, _page_ 230, mais peut-être passa-t-il en usage de l'y porter.
+
+Céphissodore, fils de Praxitele, avoit fait une Vénus* qu'on voyoit dans les monumens d'Asinius Pollio.
+
+*) Plin. Histor. Natural. lib. 36. cap. 5. tom. 2. pag. 727.
+
+On voit encore à-présent à Rome une Statue de Vénus dédiée par les Maronites, avec les titres de [GREEK] Excellente, de [GREEK] Sauveur, d'[GREEK] illustre, et d'[GREEK] Bienfaictrice. _Boissard Topograph. Roman. F. 116._
+
+Les Romains établirent leur religion par-tout où ils porterent leurs armes. Sur les confins des Gaules* et de l'Espagne, il y avoit un Promontoire avec un Temple de Vénus. Ce Promontoire s'appelloit indifféremment Aphrodisium, ou Massaliotique. C'est le même que Marcianus nomme Promontoire de Pyrene,* qui étoit, selon ce Géographe au levant d'été ; il y avoit un Temple de Vénus. On lit dans les Extraits de Strabon que la* province de Narbonne est séparée de l'Italie par le Var, et de l'Espagne par le Temple de Vénus Pyrenæa.
+
+*) Strab. lib. 4. pag. 269. C. 274. B.
+
+*) Marciani Periplus, pag. 44 et 45.
+
+*) Excepta è Strabone, lib. 3. pag. 33. Vid. Geograph. Script. minores, tom. 2.
+
+Il y avoit à cinq milles de Sagonte,* en Espagne, un Temple de Vénus où camperent Cnæus et Publ. Scipion, en marchant contre les Carthaginois.
+
+*) Polyb. lib. 3. §. 97 tom. 1. pag. 344.
+
+Près de la ville de Mænacé,* qui n'étoit pas fort éloignée de Tartesse, en Espagne, étoit un Temple de Vénus.
+
+*) Aviani Ora maritima, vers. 437.
+
+Il y en avoit un autre un peu au-dessus de Bathia,* ainsi que dans l'isle d'Erythie, où étoit un Promontoire qui portoit le nom de la Déesse. Cette isle étoit consacrée à Vénus Marine.
+
+*) Plutarchi Apophthegmata. pag. 196. B.
+
+*) Rufi Festi Aviani Ora maritima vers. 315.
+
+Hésychius parle* d'une petite Statue de Vénus, qu'il nomme Ostracis, sans indiquer le lieu où elle étoit.
+
+*) Hesychius voc. [GREEK].
+
+Je finis par une autre Statue de Vénus qui étoit de pierre d'Aimant.* Dans le même Temple étoit une Statue de fer de Mars. On célébroit en ce Temple, un jour de l'année, le mariage de ces Dieux. La porte étoit jonchée de myrtes ; la Statue de la Déesse étoit sur un lit de roses, et dès qu'on en approchoit celle de Mars, Vénus l'enlevoit avec violence par la vertu de l'Aimant, et l'embrassoit avec la plus vive ardeur. On ignore si cette Statue a véritablement existé. Si elle est de l'invention de Claudien, l'idée en est ingénieuse.
+
+*) Claudiani Eidyll. 5. pag. 674.
+
+On ne sçait point aussi où étoient les tableaux suivans de Vénus. Nicéarque l'avoit peinte* au milieu des Graces et des Amours. Il avoit peint aussi Hercule affligé de la folie qui lui avoit fait tuer sa femme Mégare et les enfans qu'il en avoit eus. On ne connoît point d'autre ouvrage de ce Peintre, et l'on ignore sa patrie.
+
+*) Plin. Histor. Natural. lib. 35. cap. 11. tom. 11. pag. 707.
+
+Néalcès, Peintre* ingénieux et très-habile, avoit aussi peint la Déesse. Il étoit ami d'Aratus.*
+
+*) Idem ibid.
+
+*) Plutarch in Arato, pag. 1032.
+
+Artémidore* mauvais Peintre, qu'a omis François Junius dans son ouvrage _de Picturâ Veterum_, avoir peint la Déesse.
+
+*) Martial. lib. 5. Epigramm. 41.
+
+Eumélus avoit fait un Tableau de Vénus, si l'on en croit François Junius ; mais ce tableau n'a jamais eu d'existence que dans le Catalogue des Peintres de cet Auteur.
+
+Je pourrois parler ici de la Déesse Friga, la Vénus des peuples du Nord ; mais cet objet est étranger au plan de l'Académie.
+
+Après avoir rapporté toutes les différentes Vénus dont ont fait mention les Anciens, il ne me reste plus à parler que du culte qu'on lui rendoit, et des fêtes et des sacrfices institués en son honneur.
+
+J'ai remarqué plus haut* que pour plaire à la Déesse, les femmes se prostituoient à Babylone, à Héliopolis, à Aphaques, à Sicca Veneria en Afrique, et en quelques endroits de l'isle de Cypre. Cette prostitution faisoit une partie essentielle de son culte.
+
+*) Ci-dessus, pages 12, 13, 48 et 49.
+
+J'ai observé qu'à Paphos, on sacrifioit à Vénus des animaux mâles, et que l'on consultoit avec confiance les entrailles des boucs. Les Grecs ayant pris leur Vénus des Orientaux, il est naturel de penser qu'ils emprunterent aussi des mêmes peuples le culte qu'ils lui rendoient. Cela est confirmé par Pausanias, qui nous apprend qu'on lui offroit* les cuisses des victimes, excepté celles des porcs, et par un passage des Acharnes* d'Aristophane, où il est dit qu'on n'immole point de porcs à Vénus, ce qui suppose qu'on sacrifioit en son honneur d'autres animaux. La Déesse ne pouvoit souffrir* le pourceau, à cause de la malpropreté de cet animal. Cependant on lui en sacrifioit en quelques pays, peut-être par la même raison qu on immoloit des boucs à Bacchus, quoique ce Dieu dût être leur ennemi, à cause qu'ils rongent la vigne. Témoins les Argiens, comme nous le voyons dans les Commentaires d'Eustathe sur Homère,* et dans Athénée* ; ce qui avoit fait donner le nom d'Hysteria [GREEK] à la fête que ce peuple célébroit en son honneur. L'obscur Lycophron a pris de-là occasion d'appeller Enée* fils de Choiras, dont il fait une épithete de la Déesse, parce qu'elle se plaisoit aux sacrifices des porcs, [GREEK] étant un porc, ou bien, parce que ce mot signifie aussi la partie sexuelle de la femme On prétendoit que la Vénus Castnia, dont j'ai parlé ci-dessus, _page_ 85, étoit la seule à qui on sacrifioit des pourceaux ; mais Strabon* observe qu'il y en avoit beaucoup d'autres, et nomme en particulier la Vénus de Tricca, capitale de l'Estiæotide.
+
+*) Pausanias Corinthiac. sive lib. 2. cap. 10. p. 135.
+
+*) Aristophan. Acharn. vers. 793.
+
+*) Phurnutus de Naturâ Deorum, c. 24. p. 199.
+
+*) Eustath. ad Homeri Iliad. l. 11. p. 853 lin. 34.
+
+*) Athen. Deipnosoph. lib. 3. cap. 26. p. 96. A.
+
+*) Lycophron. Alexandra vers. 1234.
+
+*) Strab. lib. 9. pag. 669. A.
+
+On immoloit à Vénus Pandémos une chevre blanche, suivant Lucien,* et à Uranie une genisse, ainsi qu'à la Vénus, dans les Jardins, dont j'ai fait mention plus haut, page 70 _etc._ Une note grecque en marge d'un Manuscrit de cet Auteur de la Bibliothèque du Roi, et qui a été imprimée dans l'Edition d'Amsterdam, dit qu'on sacrifioit à Vénus Pandemos une chevre, à cause de la lubricité decet animal, [GREEK]. Il faut donc lire [GREEK] en la place de [GREEK] qui ne fait aucun sens. La même note ajoute qu'on immoloit à Uranie une genisse, parce qu'on mettoit cet animal sous le joug, et qu'il indique d'une maniere allégorique le joug légitime du mariage. Ovide dit aussi qu'on sacrifioit des genisses aux cornes dorées, dans la fête la plus célebre de Vénus, et dont je dirai deux mots dans un moment.
+
+*) Lucian. Dialog. Meretric. 7. tom. 3. 295.
+
+On immoloit une genisse à Vénus [GREEK], qui nourrit les enfans, avant de conduire les jeunes mariées à la maison de leurs maris : témoin ce distique de Nicomede* de Smyrne, qui est du nombre de ceux qu'on appelle Anacycliques, et que je vais rapporter par cette raison :
+
+[GREEK].
+
+*) Analecta Veterum Poetarum Græcorum tom. 2. pag. 382.
+
+en commençant par les derniers mots, les vers subsisteront.
+
+[GREEK].
+
+Nous autres adolescens, nous conduisons avec plaisir ces jeunes mariées à la maison de leurs époux, après avoir immolé une genisse à Vénus Courotrophos.
+
+On lui sacrifioit aussi des colombes :
+
+_Sed cape torquatæ, Venus ô Regina, columbæ,_  
+_Ob meritum ante tuos guttura secta focos._*
+
+*) Propert. lib. 4. eleg. 5. vers. 63.
+
+le lievre* lui étoit une victime agréable. Feu M. Dacier a donc eu tort d'avancer dans ses Notes sur Horace,* que les Grecs n'avoient jamais versé de sang dans les sacrifices de Vénus.
+
+*) Philostrat. Icon. lib. 1. 6. pag. 772.
+
+*) Voyez ses Notes sur l'Ode 19, du Livre 1.
+
+Hésychius nous parle d'un sacrifice en l'honneur de Vénus, qu'il nomme Zacoria ; mais, comme il se contente de cette simple dénomination, et qu'il n'en est fait mention dans aucun autre Auteur, nous ne pouvons en rien dire de plus. Nous ne répéterons pas ce que nous avons dit à l'Article d'Uranie, sur les sacrifices et la fête de Vénus, qui se faisoient à Amathunte et ailleurs.
+
+Les Lydiens célébroient* une fête de la Déesse avec beaucoup de magnificence. Ils faisoient une procession où ils étaloient toutes leurs richesses. Crésus étoit né en ce jour.
+
+*) Ptolemæi Hephæst. lib. 3. Vide Photii Bibliothec. Cod. 190 pag. 477. lin. 40.
+
+Il y avoit à Sestos* une fête superbe en l'honneur de Vénus et d'Adonis. On s'y rendoit de toutes parts, et même de l'Isle de Cypre, si l'on peut ajouter foi au Pseudo-Musée, de qui nous avons un Poëme sur les Amours de Léandre et de Héro.
+
+*) Musæus de Herone et Leandro, vers. 42.
+
+On célébroit dans la Troade une fête de Vénus,* et les nouvelles mariées faisoient en ce jour une procession. Quelques jours avant leur mariage, les jeunes filles se rendoient sur les bords du Scamandre, se baignoient dans ses eaux, et s'adressant au fleuve, elles lui disoient : Scamandre, reçois ma virginité. Cette coutume donna occasion à une aventure de Cimon, compagnon de voyage d'Eschines, que celui ci raconte dans sa dixieme Lettre, et dont La Fontaine a fait un de ses Contes.
+
+*) Æschinis Epistolæ ex edit. Taylor. tom. 2. pag. 738.
+
+Nous avons parlé de plusieurs fêtes de la Déesse dans l'Isle de Cypre, à l'occasion de Vénus Uranie. Il y en avoit une, sur-tout, très célebre, dont Ovide parle en termes généraux, et qui est peut-être la même, que quelqu'une de celles dont j'ai déja fait mention ; mais j'aime mieux m'exposer à une redite, que d'être accusé d'avoir oublié quelque chose d'essentiel. On immoloit à cette fête des genisses, dont on avoit doré auparavant les cornes :
+
+_Festia dies Veneri, totâ celeberrima Cypro_  
+_Venerat, et pandis inductæ cornibus aurum_  
+_Conciderant ictæ niveâ cervice juvencæ._*
+
+*) Ovid. Metamorphos. lib. 10. vers. 270.
+
+Nous nous sommes beaucoup étendu sur les honneurs qu'on rendoit à Vénus, à Eryx en Sicile. Il est naturel de penser qu'une Ville, qui avoit tant de dévotion pour la Déesse, célébroit quelque fête particuliere en son honneur. Aussi y en avoit-il deux remarquables, l'une que l'on appelloit la fête du Départ, et l'autre celle du Retour. Le départ de Vénus pour l'Afrique, donna occasion à la premiere. On conjecture en effet, dit Elien,* qu'elle se rend en ce tems-là en Libye, parce qu'on n'apperçoit point alors de colombes dans le Pays, quoiqu'il y en ait une très-grande quantité le reste de l'année. Les Habitans d'Eryx prétendent qu'elles vont servir la Déesse. Car elles font, disent-ils, ses plaisirs, et tous les hommes en sont persuadés. Au bout de neuf jours, en apperçoit revenir de la Libye une colombe d'une grande beauté, dont la couleur* ne ressemble point à celle des autres. Elle est couleur pourpre, et telle qu'Anacréon nous peint Vénus, quand il chante quelque part dans ses vers [GREEK], _Purpuream Venerem_ : mais ce pourpre tire aussi sur l'or, et nous représente la même Déesse, telle qu'Homere la décrit dans ses vers, lorsqu'il dit [GREEK], _Aurea Venus_. Les autres colombes l'accompagnent en troupes. Les Habitans célébrent à cette occasion une nouvelle fête qu'ils appellent le Retour.
+
+*) Ælian. de Naturâ Animal. lib. 4. cap. 2. pag. 177.
+
+*) J'ai suivi les corrections de Corneille de Paw qui m'ont paru sûres. Voyez son Anacréon p. 272.
+
+Meursius ne parle point de ces deux fêtes, non plus que de beaucoup d'autres. Elien prend au propre, comme on vient de le voir, les termes de _Purpurea_ et d'_Aurea_, qui expriment seulement, à mon avis, la beauté de la Déesse, et qui n'auroient dû se prendre qu'au figuré. C'étoit aussi le sentiment de Saumaise, dont l'autorité est en ces matieres du plus grand poids. Voyez ses notes, _ad Aram primam Dosiadæ_, pag. 139.
+
+Mais peut-être l'épithete de [GREEK], _Aurea_, lui a-t-elle été donnée à cause de la richesse de ses Temples, ou parce que les jeunes filles aiment à porter de l'or, des bijoux d'or. On connoit ce vers d'Homere, [GREEK], qui porte de l'or, comme une jeune fille : ou parce que l'or sert beaucoup en amour, témoin la fable de Jupiter et de Danaë : ou enfin, parce que la couleur blonde étoit celle à laquelle les Anciens donnoient la préférence pour la chevelure des femmes.
+
+Il pourroit se faire aussi qu'on ait donné à la Déesse le nom de [GREEK] _Purpurea_, parce que l'Isle de Cytheres, qui lui est particuliérement consacrée, s'appelloit anciennement [GREEK], comme nous l'apprenons d'Etienne de Bysance au mot [GREEK], ou, [GREEK], comme on le trouve écrit dans les Commentaires d'Eustathe* sur Homere, ou Porphyris avec Pline.*
+
+*) Eustath. in Homerum pag. 1024 lin. 48.
+
+*) Plin. Histor. Natural. lib. 4. cap. 12. tom. 1. pag. 208. lin. 15.
+
+On célébroit à Thebes* la fête appellée Aphrodisia, lorsque les Magistrats étoient prêts à sortir de Charge. On leur amenoit les plus belles femmes de la Ville. Mais je ne puis dire si cette licence étoit d'usage, ou si c'étoit un abus introduit, pendant que la citadelle de cette Ville étoit au pouvoir des Lacédémoniens, et que ceux de ce parti gouvernoient leurs Concitoyens avec une verge de fer. Polyen raconte* la même chose, avec quelque légère différence, et l'on voit par Plutarque que cela se passa en hiver ; car il remarque que le jour* que les exilés rentrerent dans Thebes, il tomba beaucoup de neige.
+
+*) Xenophont. Hellenic. lib. 5. pag. 566 E. Editionis Parisiens.
+
+*) Polyæni Strategemata libr. 2. cap. 4. §. 3 pag. 167.
+
+*) Plutarch. in Pelopidâ, pag. 282. A.
+
+Les Eginetes* faisoient tous les ans la commémoration de leur retour de Troie. La fête duroit seize jours. On la commençoit par un sacrifice à Neptune, et on la terminoit par un autre à Vénus.
+
+*) Plutarchus Quæstion. Græcanic. pag. 301. E.
+
+Le quatrieme jour de chaque mois on célébroit à Athenes la fête de Vénus Pandémos, comme on le voit dans Athénée,* qui cite à cette occasion des vers du Flatteur de Ménandre.
+
+*) Athen. Deipnosophist. lib. 14. cap. 22. pag. 659. D.
+
+Lyncée de Samos parle* de la fête de Vénus, que solemnisa Antigone à Athenes. Athénée qui nous a conservé cette particularité, répete encore la même chose, livre 4, chap. 1, pag. 128.
+
+*) Idem lib. 3. cap. 21. pag. 101. F.
+
+[GREEK] _sobrium sacrificium_ étoit un sacrifice, selon Polémon* dans un ouvrage adressé à Timée, qui se faisoit chez les Athéniens, en l'honneur de Mnémosyne, de l'Aurore, du Soleil, de la Lune, des Nymphes, et de Vénus Céleste. Les libations ne se* faisoient point avec du vin, mais avec de l'hydromel. Empédocle met aussi les libations de miel au nombre des offrandes faites à Vénus, dans un passage que je vais rapporter en entier, parce qu'il y est parlé de différentes manieres d'honorer la Déesse. « On se rend propice Vénus, dit-il, par des Statues, en lui offrant des animaux peints, des parfums, de la myrrhe, de l'encens, et en faisant en son honneur des libations de miel.* » Ce qu'il y a d'étonnant, c'est qu'on célébroit souvent des Néphalies en l'honneur de Bacchus.*
+
+*) Scholiast. Sophoclis ad Œdipum Col. vers. 101. Suidas voc. [GREEK] pag. 619.
+
+*) Suidas voc. [GREEK], pag. 620.
+
+*) Athen. Deipnosoph. lib. 12. cap. 1. p. 510. D.
+
+*) Plutarch. de Tuendâ Valetudine, pag. 132. E.
+
+Les Délies avoient été instituées en l'honneur de Vénus par Thésée, à son retour de Crete, si l'on peut ajouter foi à Dom de Montfaucon ; mais ce Sçavant Religieux ne peut fonder son opinion que sur un passage de Plutarque, qu'il n'a point entendu. Voyez son Antiquité Expliquée, vol. 2, partie 2, _pag._ 214, et Plutarque, _in Theseo, pag._ 9. D.
+
+Il y avoit à Corinthe une fête de Vénus, que les Courtisanes célébroient ensemble, et les femmes libres en leur particulier, comme nous l'apprend le Poëte Comique Alexis,* dans la Piéce intitulée l'Amante.
+
+*) Athen. Deipnosophist. lib. 13. c. 4. p. 574. B.
+
+Philochorus assure* qu'il y avoit une fête où les femmes sacrifioient à Vénus en habit d'homme, et les hommes en habit de femme. Cette fête me paroît celle que l'on appelloit, sans doute par cette raison, [GREEK] _Contumeliosa_, dont fait mention Plutarque,* et qui fut instituée pour perpétuer la mémoire d'un exploit des femmes d'Argos, contre les Spartiates.
+
+*) Macrob. Saturnal. lib. 3. cap. 8. pag. 283.
+
+*) Plutarchus de Virtutibus Mulierum, pag. 245.
+
+J'ai parlé plus haut* du culte qu'on rendoit à Rome à Vénus et à Adonis, et de la fête de Vénus _Genetrix_,* qui se faisoit le cinq des Calendes d'Octobre.
+
+*) Page 23.
+
+*) Page 235.
+
+Les Vinales Rustiques étoient une fête en l'honneur de la Déesse, comme on le voit dans Festus, aux mots _Rustica Vinalia_. Ovide en parle au quatrieme livre des Fastes, Vers. 877. Vous demandez, dit-il, pourquoi on appelle _Vinalia_ la fête de Vénus. La réponse qu'il fait à cette question, me semble obscure. Celle de Plutarque, quoiqu'au fond la même, me paroissant plus claire, doit trouver place ici. Pourquoi, se demande ce judicieux Auteur, verse-t-on du Temple de Vénus beaucoup de vin dans la fête des Vinales ? [GREEK].* On voit au premier coup d'œil que que le texte est corrompu, et qu'il faut lire [GREEK]. Feu M. Reiske n'a point fait de remarques sur ce Traité de Plutarque. Mais revenons à la réponse de cet Ecrivain : « Seroit-ce, dit-il, comme on le raconte communément, parce que Mézence, Général des Tyrrhéniens, envoya offrir la paix à Enée, à condition qu'on lui donneroit tous les ans le vin, et qu'Enée n'ayant pas voulu l'accepter, il promit aux Tyrrhéniens de leur abandonner ce vin, s'il remportoit la victoire. Enée, informé de cette promesse, consacra le vin aux Dieux, et ayant rassemblé après la victoire tout ce qui avoit été recueilli, il répandit* le vin devant le Temple de Vénus. Ou plutôt, ne veut-on pas nous apprendre par cet emblême, qu'il faut célébrer les fêtes des Dieux avec sobriété, et non point en s'enivrant, parce que les Dieux prennent plus de plaisir à ceux qui répandent beaucoup de vin, qu'à ceux qui le boivent. »
+
+*) Plutarch. Quæstion. Roman. pag. 275 D. E.
+
+*) Je lis ici [GREEK] au lieu de [GREEK] qui ne fait point de sens.
+
+Cette histoire de Plutarque me fait croire qu'il s'agit ici des secondes Vinales, ou Vinales Rustiques, qu'on célébroit le douze ou le treize des Calendes de Septembre. Elle ne peut absolument convenir aux premières Vinales qui se faisoient le 22 Avril. Cela est confirmé par Varron* : _Vinalia Rustica dicuntur, ante diem duodecimum Kalendas septembris quod tum Veneri dedicata Ædis et horti ejus tutelæ adsignantur, ac tum sunt feriati Olitores._
+
+*) Varro de Linguâ Latinâ, pag. 48.
+
+Les Courtisanes célébroient* aussi en ce jouir la fête de Venus :
+
 ...
