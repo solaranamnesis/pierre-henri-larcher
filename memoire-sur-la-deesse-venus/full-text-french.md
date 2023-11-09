@@ -2921,4 +2921,188 @@ Cette histoire de Plutarque me fait croire qu'il s'agit ici des secondes Vinales
 
 Les Courtisanes célébroient* aussi en ce jouir la fête de Venus :
 
+_Numina vulgares Veneris celebrate puellæ._  
+_Multa professarum quæstibus apta Venus._  
+_Poscite ture dato formam, populi que favorem :_  
+_Poscite blanditias, digna que verba joco._
+
+*) Ovid. Fastor. lib. 4. vers. 865. _etc._
+
+Le mois d'Avril étoit* consacré à Vénus, et l'on célébroit à Rome une fête en son honneur, le premier de ce mois, si l'on en croit l'ancien Calendrier qu'on place communément au devant des Fastes d'Ovide. Cela est aussi confirmé par le quatrieme livre des Fastes, vers 61, _etc._ où ce Poëte prétend que le mois d'Avril, _Aprilis_, a été nommé d'un mot grec ; en changeant sans doute la lettre aspirée [GREEK] en sa tenue [GREEK]. On sait que les Grecs appelloient Vénus en leur langue Aphrodite, et qu'Aphros signifie de l'écume. On connoît aussi ces vers du même Poëte* :
+
+_Quo non livor abit ? Sunt qui tibi mensis honorem_  
+_Eripuisse velint, invideant que, Venus._  
+_Nam quia ver aperit tunc omnia, dense que cedit_  
+_Frigoris asperitas, fœta que terra patet,_  
+_Aprilem memorant ab aperto tempore dictum :_  
+_Quem Venus injectâ vindicat Alma manu._
+
+*) Plutarch. Quæst. Roman. pag. 285. A.
+
+*) Ovid. Fastor. lib. 4. vers. 85.
+
+Je conteste d'autant moins cette étymologie, qu'Ovide étoit Sçavant, et qu'il n'étoit pas seul de cet avis : _secundum mensem nominavit (Romulus) Aprilem, ut quidem putant cum aspiratione, quasi Aphrilem ; à spumâ quam Græci Aphron vocant, unde orta Venus creditur_.* Mais je ne dois pas dissimuler que Cincius étoit d'un autre sentiment, ainsi que Varron. Macrobe nous apprend* que cet Auteur soutenoit dans un ouvrage qu'il a écrit sur les Fastes, que les Anciens n'ont point nommé le second mois de l'année _Aprilis_, à cause de Vénus, mais parce que les germes se développent en ce mois, et que la terre paroît en quelque sorte s'ouvrir. Cet Auteur le prouve, parce qu'on ne trouve en ce mois aucune fête remarquable de Vénus, aucun sacrifice d'institution ancienne : parce que cette Déesse n'étoit pas même connue à Rome dans les anciens tems,* puisqu'il n'en est fait aucune mention dans les vers des Saliens, quoiqu'il y soit parlé du reste des Dieux. Varron pensoit aussi que sous les Rois de Rome, les Romains n'avoient eu aucune connoissance du nom grec ou latin de Vénus, et par conséquent qu'ils n'avoient pu donner au mois _Aprilis_ le nom de cette Déesse.
+
+*) Macrob. Saturnal. lib. 1. cap. 12. pag. 170.
+
+*) Idem ibidem.
+
+*) J'en ai dit un mot page 198.
+
+Quoiqu'il en soit sur le tems où cette fête fut instituée, on passoit en réjouissances la nuit qui la précédoit,* _quid ? tu Venerin' pervigilare te vovisti, Phædrome ?_ Dans des bocages, et sous des tentes de verdure, faites avec des branches de myrte entrelassées,
+
+_Inter umbras arborum_  
+_Implicat casas virentes_  
+_E flagello myrteo._*
+
+et les deux nuits suivantes. La jeunesse, libre de tout autre soin, formoit des chœurs, se répandoit dans les bocages, et couronnée de fleurs, s'assembloit dans des maisons de myrte. Cérès, Bacchus, et le Dieu de la Poësie, ne manquoient pas de s'y trouver. On passoit les nuits entieres à chanter les louanges de Vénus.
+
+_Jam tribus choros videres (nempe Diana)_  
+_Feriatos noctibus_  
+_Congreges inter catervas,_  
+_Ire per saltus tuos_  
+_Floreas inter coronas,_  
+_Myrteas inter casas._  
+_Nec Ceres, nec Bacchus absunt,_  
+_Nec Poetarum Deus._  
+_Te sinente, tota nox est_  
+_Pervigilanda cantibus._
+
+*) Plauti Curculio, act. 1. sc. 3 vers. 25.
+
+*) Pervigilium Veneris Vers. 10.
+
+*) Ibidem vers. 67. _etc._
+
+Nous apprenons par Ovide, que dans cette fête, les femmes ôtoient à la Déesse les ornemens, afin de la laver, et qu'ensuite on les lui remettoit, avec des bouquets de fleurs, et sur-tout de roses :
+
+_Rite Deam Latiæ colitis Matres que Nurus que ;_  
+_Et vos, quîs vittæ longa que vestis abest._  
+_Aurea marmoreo redimicula solvite collo :_  
+_Demite divitias : tota lavanda Dea est._  
+_Aurea siccato redimicula reddite collo :_  
+_Nunc alii flores, nunc nova danda rosa est.*_
+
+*) Ovid. Fastor. lib. 4. vers. 133, _etc._
+
+Il nous est resté de cette fête un Poëme très-altéré, qui a été assez bien rétabli par le Pere Sanadon, et sur-tout par feu M. le Président Bouhier. L'Académie voit que je veux parler du _Pervigilium Veneris_, que j'ai déja cité plusieurs fois.
+
+Il y avoit une sorte de pois chiche,* blanc, rond, léger, qu'on appelloit pois chiche de Colombe ou de Vénus, _Cicer Columbinum quod alii Venerium vocant_, dont on mangeoit dans les Veillées de Vénus.
+
+*) Plin. Histor. Natural. lib. 18. cap. 12. tom. 2. pag. 116.
+
+Thulla étoit une fête de Vénus, dont Meursius ne nous dit aucune particularité. Mais Hésychius ajoute que ce mot signifioit aussi des branches ou des feuilles. De-là je conjecture que cette fête se célébroit au commencement du printems, saison où la nature se renouvelle, et où tous les animaux reconnoissent l'empire de la Déesse. On portoit sans doute en cette fête des couronnes de myrte, peut-être y pratiquoit-on des maisons de verdure avec des branches de cet arbrisseau, comme on le voit dans le _Pervigilium Veneris_, vers 9, _etc._
+
+_Cras Amorum copulatrix_  
+_Inter umbras arborum_  
+_Implicat casas virentes_  
+_E flagello myrteo._
+
+Les Commentateurs d'Hésychius ont remarqué que [GREEK], venant de [GREEK], en changeant le [GREEK] en [GREEK], comme dans [GREEK] dont on avoit fait [GREEK], on avoit dit [GREEK], [GREEK] et [GREEK]. Mais je m'imagine que Thulla est une faute des Copistes, et qu'il faut lire [GREEK].
+
+Le lierre sauvage étoit proscrit des fêtes de Vénus à Thebes, peut-être, comme le remarque* faussement Plutarque, parce que cette plante est stérile et inutile aux hommes. Il l'étoit pareillement de celles de Junon à Athenes, et de Jupiter à Olympie. Le Prêtre de Jupiter à Rome, qu'on appelloit Flamen Dialis, ne pouvoit en toucher.
+
+*) Plutarch. Quæst. Roman. pag. 290 E. 291 A.
+
+Les Anciens avoient une danse* figurée, ou si l'on veut, une pantomime, qui représentoit Mars avec Vénus, le Soleil qui les dénonçoit à Vulcain, et celui-ci qui les enveloppoit d'un filet imperceptible. Lucien en donne une description très-étendue. Cette Pantomime m'en rappelle une d'Adonis, où Vénus jouoit un très-grand rôle, comme nous l'apprenons d'Arnobe. « Vénus oubliera-t-elle, dit ce Pere,* les offenses qu'on lui aura faites, en voyant Adonis danser et jouer la Pantomime : _obliterabit offensam Venus, si Adonis in habitu gestum agere viderit saltatoriis in motibus Pantomimum_ ? »
+
+*) Lucian. de saltatione §. 63 tom. 2. pag. 302.
+
+*) Arnobius adversus Gentes, lib. 7. pag. 238.
+
+Je ne sais si Arnobe avoir encore en vue la même Pantomime, ou une autre plus infame, lorsqu'il s'écrie : _quod nefarium esset auditu, gentis illa Genetrix Martiœ, regnatoris et populi procreatrix amans saltatur Venus, et per affectus omnes meretriciæ vilitatis impudica exprimitur imitatione bacchari_.* St. Augustin vouloit sans doute parler des mêmes Pantomimes, lorsqu'il dit dans la Cité de Dieu* : _quid sunt ad hoc malum... Veneris lascivia, stupra et turpitudines quæ proferremus nisi quotidie cantarentur et saltarentur in theatris_. Je pourrois aussi parler de la Pantomime du Jugement de Paris, que prenoit plaisir à jouer l'infame Héliogabale.* Mais ces objets, dit avec beaucoup de justesse le divin Platon,* sont d'un trop mauvais exemple.
+
+*) Idem ibid. lib. 4. pag. 151.
+
+
+*) Sanctus Augustinus de Civitate Dei lib. 7. cap. 26.
+
+*) Lampridius in Antonino Heliogabalo, tom. 1. pag. 800.
+
+*) Plato de Republicâ, lib. 3. tom. 2. p. 390 C.
+
+Vénus avoit non-seulement un mois de l'année qui lui étoit consacré, mais encore un jour de la semaine. C'étoit le sixieme : _Sexta salutigerum sequitur Venus Alma parentem_.* On se coupoit les cheveux en ce jour, dit un Anonyme ; _ungues Mercurio, barbam Jove, Cypride crines_. Mais Ausone n'approuve point cela.
+
+_Barba Jovi, Crines Veneri decor : ergo necesse est,_  
+_Ut nolint demi, quo sibi uterque placet._*
+
+*) Ausonins Eclog. 372. vers. 6.
+
+On lui offroit des Sacrifices en ce jour, dit Jamblique.* C'étoit sans doute parce que le nombre sénaire étoit regardé comme le plus parfait. On croyoit ce nombre tel, parce qu'il est égal, dit Euclide,* aux parties qui le constituent. « Le nombre sénaire est, selon Philon* dans son Ouvrage, sur la Création du Monde, le plus fécond, suivant les loix de la nature. C'est après l'unité, le premier nombre parfait. Il est égal aux parties intégrantes dont il est composé ; c'est-à-dire, à un ternaire qui est sa moitié, à un binaire qui est son tiers, et à l'unité qui est sa sixieme partie. Ce nombre est, pour ainsi dire, mâle et femelle, et composé des vertus de l'un et de l'autre sexe. Car dans les choses, le nombre* impair est le mâle, et le pair la femelle. Trois est le premier nombre impair, deux le premier nombre pair. De ces deux nombres vient six. »
+
+*) Idem Eclog. 374 vers. 3 et 4.
+
+*) Jamblieh. de Vitâ Pythagoræ, pag. 128.
+
+*) Euclid. lib. 7. definit. 22. pag. 149.
+
+*) Philo de Mundi Opificio secund. Mosen. pag. 3. lin. 17.
+
+*) Plutarque dit aussi la même chose (Quæstion. Roman. pag. 288) et il se demande si c'est par cette raison qu'on imposoit chez les Romains les noms aux filles huit jours, et aux garçons neuf jours après leur naissance : ou bien, si c'est parce que huit est le cube de deux, premier nombre pair, et neuf le carré de trois, premier nombre impair.
+
+Ce nombre étoit, par cette raison, consacré à Vénus. _Hic autem numerus_, dit Martianus Cappella Lib. 7, _Veneri est attributus, quod ex utriusque sexus commixtione conficitur ; id est, ex triade qui mas quod impar est, numerus habetur ; et dyade, quæ fœmina paritate ; nam bis terni hexas fit_.
+
+Au jeu de dez, rafle de six étoit le coup victorieux ; [GREEK], dit Hésychius. On l'appelloit Vénus, et c'est de cette maniere qu'on tiroit au sort le Roi du festin : _quem Venus Arbitrum dicet bibendi_.* Caton, le Jeune tiroit aussi au fort,* dans les festins, la portion que chacun devoit avoir. Lorsque le sort ne lui étoit pas favorable, ses amis le prioient avec instance d'accepter la premiere part. Mais il la refusoit, disant qu'il ne la prendroit pas malgré Vénus. Au jeu des osselets, le coup le plus heureux, et qu'on appelloit aussi Vénus,* étoit, lorsque les nombres ne se ressembloient point, c'est-à-dire, quand on amenoit un as, un trois, un quatre et un six. _Talis enim jactatis, ut quisque Canem aut Senionem miserat, in singulos talos singulos denarios in medium conferebat : quos tollebat universos, qui Venerem jecerat_.*
+
+*) Horat. Od. lib. 2. Od. 7. vers. 25.
+
+*) Plutarch. in Carone Minore png. 762 B.
+
+*) Lucian. Amor. §. 16 tom. 2. pag. 415.
+
+*) Sue onius in Augusto cap. 71.
+
+Cela est conforme à la doctrine de Pythagore, qui donnoit aux nombres* et aux figures de géométrie les noms des Dieux ; au deux celui de Vénus,* de Dioné, de Muchaia et de Cythérée, qui sont des surnoms de cette Déesse, dont j'ai fait mention plus haut. Le Carré lui étoit consacré,* et je me rappelle d'avoir remarqué en parlant d'Uranie,* qu'elle étoit représentée à Athenes par une pierre quadrangulaire,* près d'un Temple qu'elle avoit dans le quartier appellé _les Jardins_. Le nombre cinq* s'appelloit Vénus, Cythérée, Gamélia et Androgynia. Voici la raison qu'en apportoient les Pythagoriciens, selon l'auteur des _Theologoumena Arithmeticæ_. « Ils appellent Vénus le nombre cinq, parce que les nombres mâles et femelles sont tissus ensemble. On le nomme aussi, par la même raison, Nuptial et Androgyne.* » [GREEK]. Le même Auteur avoit dit, un peu plus haut, _pag._ 25 : « le cinq... est appellé [GREEK] mariage, parce qu'il est composé du mâle et de la femelle. » [GREEK]. On voit aussi, dans Plutarque,* que le nombre cinq est nommé mariage, à cause de la ressemblance du nombre pair avec la femelle, et du nombre impair avec le mâle.
+
+*) Plutarch de Iside et Osiride pag. 381 F.
+
+*) Photii Bibliotheca in Nicomachi Geraseni Excerptis, Cod. 187 col. 461 lin. 37.
+
+*) Plutarch. de Iside et Osiride pag. 363. A.
+
+*) Voyez ci-dessus pages 70 et 73.
+
+*) Pausanias Attic., sive lib. 1. cap. 19. p. 44.
+
+*) Photii Bibliothec. in Nicomachi Geraseni Excerptis Cod. 187 col. 464 lin. 46.
+
+*) [GREEK] pag. 33. Parisiis 1543 in-4°. M'entretenant un jour avec M. de Villoison sur les nombres de Pythagore, ce jeune Savant, qui est sur le point de nous donner une excellente edition de Phurnutus, ou plutôt Cornutus _de Naturâ Deorum_, me parla de ce passage, que je connoissois d'autant moins, que le livre, d'où il est tiré, ne m'est jamais tombé entre les mains. Comme je travaillois alors à ce Mémoire, je sentis à l'instant l'utilite dont il pouvoit m'étre, et j'en fis usage. _Cette note a été ajoutée après que le Prix m'a été adjugé_.
+
+*) Plutarchus de E. apud Delphos, pag. 388 A.
+
+Il est bon de remarquer que chez les Romains on portoit aux noces cinq flambeaux allumés. Plutarque,* qui se demande la raison de cet usage, répond que le nombre cinq est de tous les nombres impairs celui qui convient le mieux aux noces, parce que trois est le premier nombre impair, deux le premier nombre pair, et que du mêlange de ces deux nombres, comme du mâle et de la femelle, vient cinq. Il répond encore que ceux qui se marient croient avoir besoin du secours de cinq Dieux ; Jupiter parfait, Junon parfaite, Vénus, Pitho, (la Déesse de la Persuasion) et Diane qu'invoquent les femmes en travail.
+
+*) Id Quæstion. Roman. pag. 263 F. 264. A.
+
+Si les nombres étoient consacrés aux Dieux, les doigts de la main l'étoient pareillement. Le pouce étoit appellé le doigt de Vénus, comme on le voit dans l'ouvrage que Mélampus adresse* au Roi Ptolémée sur la Divination, par le moyen des Tressaillemens. « Le tressaillement du pouce, dit-il, indique l'acquisition de grands biens, que sa femme et ses enfans donneront bien de la joie, car c'est le doigt de Vénus. »
+
+*) Melampus [GREEK]. Ce Traité se trouve dans l'édition toute grecque d'Aristote, donnée par Sylburge à Francfort, chez les Wechel, en 1587. in-4°.
+
+On avoit aussi consacré à la Déesse quelques animaux, l'Aphron,* petit poisson de mer, qu'on appelle encore Aphrya ou Aphya, parce que la Déesse étoit née de l'écume, et qu'Aphron signifie de l'écume ; le Chrysophrys ou Dorade* ; le Phalaris, sorte d'oiseau de mer, dont le nom françois m'est inconnu, parce que ce nom fait allusion au Phalle* ; une espece de Héron* qu'on appelloit [GREEK]. J'ai parlé amplement de l'Iunx _pag._ 56 et 57. L'Hirondelle* lui étoit consacrée, ainsi que la Tourterelle* blanche. La Colombe l'étoit aussi. Voici la raison qu'en donne Lutatius, ancien Scholiaste de Stace, qui l'avoit puisée lui-même dans les anciens Mythologues. Vénus et Cupidon étant venus, dit-il,* dans une prairie, le disputerent, à l'envi l'un de l'autre, à qui cueilleroit le plus de fleurs. Cupidon l'emportoir par son agilité et par l'usage de ses aîles ; mais la Nymphe Péristera vint au secours de la Déesse, et il fut vaincu. Ce petit Dieu indigné changea la Nymphe en Colombe. La Déesse la prit sous sa protection, et pour la consoler dans son malheur, elle voulut que cet oiseau lui fût consacré. On sçait que la colombe s'appelle en Grec [GREEK]. Quand les Grecs ne pouvoient rendre raison de quelque chose, ils avoient recours à des fables puériles. Le Scholiaste d'Eschyle me paroît plus sensé. Tous les oiseaux,* dit-il, ne font des petits qu'une fois l'an, la colombe en fait en tout tems. C'est par cette raison, ajoute-t-il, qu'elle est consacrée à Vénus. Elle est appellée, continue t-il, [GREEK] parce qu'elle aime excessivement [GREEK] en mettant le [GREEK] par pléonasme. Le Scholiaste d'Apollonius prétend aussi,* d'après Apollodore dans son ouvrage sur les Dieux, qu'elle a été consacrée à la Déesse, à cause de sa lasciveté. Du reste, il apporte la même étymologie que le Scholiaste d'Eschyle.
+
+*) Athen. Deipnosophist. lib. 7. cap. 21. pag. 325 B.
+
+*) Idem ibid. cap. 24. pag. 328 A.
+
+*) Idem ibid. cap. 21. pag. 325.
+
+*) Eustath. commentar. in Homeri Iliad. K. pag. 804 lin. 63.
+
+*) Ælian. de Naturâ Animal. lib. 10. cap. 34. pag. 583.
+
+*) Idem ibidem lib. 10. cap. 33. pag. 583.
+
+*) Lutat. ad Statii Thebaïd. lib. 4. vers. 226.
+
+*) Scholiast. Æschyl. ad septem contra Thebas, vers. 300.
+
+*) Scholiast. Apollonii Rhodii ad lib. 3. pag. 189.
+
+Le char de Vénus étoit traîné par des Cygnes :
+
+_Sic fata, levavit_  
+_Sidereos artus, Thalami que egressa superbum_
+
+*) Statii Sylvar. lib. 1. Sylv. 2. vers. 140.
+
 ...
