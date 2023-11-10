@@ -3339,4 +3339,147 @@ Orphée appelle* Vénus [GREEK] _adsessor_ de Bacchus, [GREEK], vénérable Asse
 
 *) Anacreon Od. 41 ex edit. Barnesii.
 
+Les Jeux, les Amours ne la quittent point,* _quam Jocus circumvolat et Cupido_ : les Graces se trouvent toujours en sa compagnie, ainsi que Mercure et la Déesse Pitho, (la Persuasion) dont j'ai parlé plus haut* à l'occasion de Vénus Pandémos. La raison en est sensible. Mercure est le Dieu de l'Eloquence, et le don de la parole, les Graces et la Persuasion conduisent, dit Phurnutus,* les personnes qu'on aime au but qu'on se propose. On lit dans Plutarque* que les Anciens plaçoient Mercure à côté de Vénus, parce que les plaisirs du mariage ont besoin d'éloquence ; et qu'ils y avoient mis aussi Pitho et les Graces pour apprendre aux personnes mariées à chercher par la persuasion et non en se querellant, ce qu'elles souhaitent mutuellement l'une de l'autre. Mais le trop subtil Séneque* prétend que c'est une fantaisie de Peintre. On voit aussi dans Apulée* que Vénus ne peut rien sans la présence de Mercure. La Déesse avoit à Halicarnasse* un Temple conjointement avec Mercure, que lui avoit fait bâtir Mausole, Roi de Carie. Il étoit placé sur la pointe droite de la Colline, près de la Fontaine de Salmacis.
+
+*) Horat. Carmin. lib. 1. od. 2 vers. 34.
+
+*) Ci-dessus, page 78.
+
+*) Phurnutus de Naturâ Deorum cap. 24. 197.
+
+*) Plutarchi Conjugial. Præcepta, pag. 138 C.
+
+*) Seneca de Beneficiis lib. 1. cap. 1. pag. 594.
+
+*) Apul. Metamorphos lib. 6. pag. 175.
+
+*) Vitruvius lib. 2. cap. 8.
+
+Ces Dieux s'appelloient [GREEK], parce qu'ils étoient adorés dans les mêmes Temples ; [GREEK], parce qu'ils participoient aux mêmes Autels ; [GREEK], parce qu'ils étoient assis l'un à côté de l'autre ; les Dieux, en effet, étoient souvent représentés assis ; témoin la critique que fit l'Architecte Apollodore de la grandeur des Statues placées dans le Temple de Vénus et de Rome. _Voyez_ ce que j'en ai dit, _page_ 245. [GREEK] pourroit aussi signifier des Dieux dont les Statues sont près l'une de l'autre ; car [GREEK] signifie des Statues dans Eschyle* et ailleurs. Cependant on n'entendoit communément par ce mot que l'égale autorité dont jouissoient ces Dieux. Aussi Gisbert Cuper* et Ezechiel Spanheim* me semblent avoir eu tort de prétendre que les Dieux [GREEK] ou _Adsessores_ étoient d'un rang inférieur, tandis que les Dieux [GREEK] étoient égaux en dignité. Pindare appelle Bacchus [GREEK] de Cérès. Quand vous engendrâtes, dit ce Poëte,* Bacchus à la longue chevelure, _qui est assis_ auprès de Cérès. Vénus et la Déesse Rome* étoient des Dieux [GREEK] ou adorés dans le même Temple. Mars et Vénus l'étoient aussi : _sex pulvinaria in conspectu fuere : Jovi ac Junoni unum ; alterum Neptuno ac Minervæ ; tertium Marti ac Veneri_.* Les Muses étoient regardées comme les sœurs de Vénus et se plaisoient en sa compagnie : [GREEK], dit Thémistius.*
+
+*) Æschyl in Supplicib. vers. 506.
+
+*) Observation. lib. 4. cap. 3. pag. 388.
+
+*) De Præstantiâ et Usu Numism. tom. 2. p. 335.
+
+*) Pindar. Isthm. Od. 7. vers. 3. [GREEK].
+
+*) Dio Cassius lib. 69. §. 4 pag. 1153 lin. 23.
+
+*) Tit. Liv. lib. 22. cap. 10.
+
+*) Themist. Hortat. ad Philosoph. Orat. 24. pag. 303. A.
+
+On joignoit aussi la Fortune à Vénus. On trouve parmi les Inscriptions de Gruter celle-ci :
+
+_Veneri et_  
+_Fortun. Prim._  
+_Sacr._  
+_L. Calvius. L. F. Pal._  
+_Varius_  
+_Ar. et Cupidines II_  
+_D. D._  
+_L. D. D. D._
+
+L. Calvius et Varius ont consacré à Vénus et à la Fortune Primigénie un autel et des Amours.
+
+Elle aimoit beaucoup Hespérus, que les Grecs appelloient [GREEK] avant le lever du Soleil, et les Latins Lucifer. On le nommoit aussi Etoile de Vénus. Cette Etoile étoit favorable aux jeunes mariés ; quand elle commençoit à paroître, on conduisoit la nouvelle épouse à la maison de son mari.
+
+_Vesper adest, Juvenes, consurgite. Vesper Olympo_  
+_Expectata diu vix tandem lumina tollit._  
+_Surgere jam tempus, jam pingues linquere mensas,_  
+_Jam veniet virgo, jam dicetur Hymenæus._*
+
+*) Catullus 61.
+
+L'Hyménée ne doit pas être passé sous silence. Je ne dois pas omettre non plus Tychon, Orthanès et Priape, dont je me serois abstenu de parler, si je n'eusse craint le reproche de n'avoir pas connu ces Dieux.
+
+Je ne m'étendrai point sur l'Hyménée, il est trop connu. A l'égard de Tychon, c'étoit, selon quelques-uns, un perit Dieu, parmi les Dieux d'un rang inférieur. C'étoit une Divinité du peuple, dont le crédit étoit très-borné, comme on le voit dans une Epigramme de Perses, qu'on lit _page_ 175 de l'Anthologie Grecque de Constantin Céphalas, donnée par feu M. Reiske. Tychon étoit aussi regardé par quelques autres, comme Mercure, et par d'autres encore, comme une Divinité de la suite de Vénus. Hésychius l'assure positivement : [GREEK]. La raison qui avoit fait donner ce nom à Mercure et à un Dieu de la suite de Vénus, me paroît sensible. [GREEK] signifie la fortune, la bonne fortune. Or, on sait que Mercure présidoit aux gains inespérés, et que la bonne fortune en amour doit être du goût de Vénus. D'autres prétendoient que Tychon étoit Priape lui-même.*
+
+*) Diodor. Sicul. lib. 4. § 6 pag. 252.
+
+Orthanès ne devoit pas moins plaire à cette Déesse. Il étoit de sa suite et de la dépendance de Priape, comme le dit le Scholiaste de Lycophron* : [GREEK]. Car c'est ainsi qu'il faut lire et non point [GREEK] qui ne fait aucun sens. Ce Scholiaste l'explique très-bien, lorsqu'il ajoute [GREEK].* [GREEK] signifie impudique, et vient de [GREEK] _arrigere_. Il est bien étonnant, après cela, que Canter, Meursius et Potter, qui ont donné des Editions de Lycophron, ne se soient point apperçu de cette faute, non plus que de celle de Lycophron, où il faut lire aussi [GREEK], au lieu d'[GREEK]. S'il pouvoit encore rester quelque doute, Hésychius suffiroit pour le lever. [GREEK]. Orthanès est un des Dieux soumis à Priape, _arrectam et ipse habens mentulam_.
+
+*) Lycophronis Scholiast. ad Alexandram vers. 938 pag. 64. col. 1 lin. 8.
+
+*) Arnob. adversus Gentes lib. 4. pag 131.
+
+Il faut mettre aussi dans le même rang la Déesse _Pertunda_, laquelle, comme s'exprime Arnobe,* _in cubiculis præsto est virginalem scrobem effodientibus maritis_. St. Augustin* demande avec raison, dans son Traité de la Cité de Dieu, pourquoi on ne l'appelle pas plutôt le Dieu _Pretundus_. Le Dieu _Subigus_ et la Déesse _Prema_ sont aussi connus par St. Augustin. Celle-ci, comme dit ce Pere, étoit honorée _ut subacta à sponso virgo non se commoveat, quum premitur_. Voyez le Traité de la Cité de Dieu, 6. 9.
+
+*) Idem ibidem lin. 10 et 11.
+
+*) Augustin. de Civitate Dei 6. 9.
+
+Génétyllis* étoit une Déesse de la Compagnie de Vénus, Auteur de la Génération. Son nom vient de la génération des enfants. Il y avoit plusieurs Déesses de ce nom, dit Pausanias,* et l'on voyoit leurs Statues au Promontoire Colias.
+
+*) Suidas voc. [GREEK].
+
+*) Pausanias Attic. sive lib. 1. cap. 1. pag. 5.
+
+Je finis ce que j'avois à dire sur Vénus par cette Ceinture merveilleuse qui enchante, persuade et séduit les cœurs des Sages. Elle étoit d'une broderie admirablement diversifiée, dit le Prince des Poëtes* : là se trouvoient tous les charmes les plus séducteurs, les attraits, l'amour, les desirs, les entretiens secrets, les innocentes tromperies, et le charmant badinage, qui insensiblement surprend l'esprit et le cœur des plus sensés. C'est ce que feu M. de la Motte, ce grand Détracteur d'Homere, me paroît avoir assez heureusement imité dans ces vers, que je crois devoir mettre ici, afin d'égayer la sécheresse de cette Dissertation.
+
+*) Homeri Iliad. lib. 14. vers. 215.
+
+Ce tissu, le symbole et la cause à la fois  Du pouvoir de l'amour, du charme de ses loix.  Il enflamme les yeux de cette ardeur qui touche,  D'un sourire enchanteur il anime la bouche,  Passionne la voix, en adoucit les sons,  Prête ces tours heureux, plus forts que les raisons ;  Inspire, pour toucher, ces tendres stratagêmes,  Ces refus attirants, l'écueil des sages mêmes :  Et la nature enfin y voulut renfermer  Tout ce qui persuade et ce qui fait aimer.
+
+Le Tasse a imité la Description d'Homere dans la Ceinture Magique d'Armide, qu'on sera d'autant moins fâché de retrouver ici qu'elle est agréable et très-courte.
+
+_Teneri sdegni, e placide e tranquille_  
+_Repulse, cari vezzi, e liete paci,_  
+_Sorrisi, parolette, e dolci stille_  
+_Di pianto, e sospir tronchi, e molli baci ;_  
+_Fuse tai cose tutte, e poscia unille,_  
+_Ed al foco temprò di lente faci :_  
+_E ne formò quel sì mirabil cinto,_  
+_Di ch' ella aveva il bel fianco succinto._*
+
+*) Gierusalemme Liberata Canto 16. stanc. 25.
+
+Ce Ceste enchanteur rendit à Junon les graces touchantes qui avoient autrefois captivé le cœur de Jupiter, et ce Dieu sentit rallumer une flamme éteinte ; et ce fut par la vertu de ce même Ceste qu'Harmonie,* devenue sensible, chercha pour époux Cadmus qu'elle venoit de fuir. Delà ces expressions si familieres à Nonnus,* [GREEK] _agitavit Cesto_. [GREEK]* ; l'amour vous-a-t-il fait sentir les coups de son Ceste ? Dans un autre endroit, ce Ceste régit* les Amours [GREEK]. Homere, dit Plutarque,* instruit, par cette fable de Vénus, les personnes attentives qu'une musique efféminée, des chansons et des discours lubriques, corrompent la jeunesse, la rendent efféminée et lui font aimer le luxe, la mollesse et le commerce des femmes.
+
+*) Nonnus Dionysiacor. lib. 4. vers. 177 et _seq._
+
+*) Idem ibid.
+
+*) Idem ibid. lib. 33. vers. 33.
+
+*) Idem ibid. lib. 5. vers. 190 lib. 32. vers. 6.
+
+*) Plutarch. de Audiendis Poetis pag. 19 F. 20 A.
+
+Si l'on peut s'en rapporter à l'ignorant et trop crédule Malalas,* Paris avoit composé un Hymne en l'honneur de Vénus, qui s'appelloit le Ceste.
+
+*) Joannis Antiocheni Cognomento Malalæ Chronographia lib. 5. pag. 115.
+
+Après avoir rassemblé avec soin tout ce que les Anciens ont dit sur Vénus, il ne me reste plus qu'à présenter en peu de mots le résultat de ce Mémoire.
+
+L'Asie est le berceau de la Philosophie et des superstitions qui en ont arrêté les progrès. Les anciens Philosophes discouroient beaucoup sur l'origine des choses, sur la production du monde, sur le premier principe, la force vivifiante. Les uns vouloient que ce fût l'air, d'autres que ce fût l'eau, et d'autres enfin que ce fût le feu. Ces Philosophes cacherent, suivant l'usage des Orientaux, leurs systêmes sous le voile ingénieux de l'allégorie. Le principe vivifiant fut peint sous les traits d'une Déesse, qui donne la vie à toute la nature, et dont l'empire s'étend sur tous les êtres. Les yeux du vulgaire ne purent percer ce voile, ce fut pour lui une barriere insurmontable. Il prit l'allégorie pour une histoire réelle, et la fable ingénieuse, inventée pour son instruction, devint la source de toutes ses erreurs. Il cessa d'appercevoir cette force motrice, essentielle à ta nature ; il ne vit plus que Milidath, Alilath, Mithra _etc._ noms sous lesquels ce principe fut connu dans les diverses contrées de l'Orient, quand on vint à l'allégoriser.
+
+Ce principe abstrait ayant pris de la consistence au moyen de l'allégorie, devint l'objet de la vénération de ce même vulgaire, et fut adoré, comme une Déesse qui préside à la reproduction de tous les êtres. Son culte devoit être pur dans l'origine, parce que les idées qu'on avoit alors de cette divinité, tenoient plus ou moins dans cette enfance des choses, des qualités abstraites du principe auquel elle devoit son existence. Son culte continua sans doute quelque temps dans sa pureté primitive ; mais lorsqu'on eut fait l'application de ces qualités abstraites à l'union des deux sexes, soit dans le mariage, soit hors du mariage, et quand on eut fait présider à cette union ce principe, de quelque maniere qu'il eût été allégorisé, son culte dut peu-à-peu dégénérer, et Vénus, de Céleste qu'elle étoit, devint bientôt une prostituée. Il n'y avoit qu'un pas à faire, le principe Créateur étant le même dans la débauche et dans l'union légitime. De-là ce culte infame, dont elle fut honorée presque par-tout l'Orient, et dont j'ai parlé d'une maniere assez étendue au commencement de ce Mémoire.
+
+Je suis persuadé qu'on distingua longtems ces deux Vénus, quoique je ne puisse en apporter de preuves directes ; mais les indirectes sont assez fortes pour autoriser mon opinion.
+
+Les Grecs prirent des Orientaux une partie de leurs Dieux. Vénus fut de ce nombre. Elle fut chez eux bien caractérisée. Vénus Céleste fut toujours une Divinité chaste. Harmonie, fille de Cadmus, lui donna le nom de Céleste, comme je l'ai remarqué ci-dessus, _pag._ 63 et 64 d'après Pausanias, pour exprimer son amour honnête et dégagé des sens. Cadmus sut sans doute le premier qui la fit connoître aux Grecs. Je ne déciderai point si son culte étoit à Athenes* antérieur ou postérieur à cette époque. Mais ce qu'il y a de certain, c'est qu'il y étoit très-ancien. La pierre quadrangulaire,* Type, sous lequel cette Déesse y étoit connue, en prouve l'ancienneté, et le pays qui lui avoit donné naissance. Le carré étoit* consacré à la Déesse, et cette opinion tenoit au systême des Orientaux sur les nombres et leurs propriétés que Pythagore puisa dans la suite chez ces peuples.
+
+*) Les Athéniens étoient Pélasges d'origine, et non point Hellenes. Ainsi l'on ne peut décider s'ils eurent connoissance de Vénus par la Colonie Phénicienne qui s'établit en Béotie, ou si cette connoissance leur vînt d'ailleurs.
+
+*) Voyez ci-dessus, page 70.
+
+*) Plutarch. de Iside et Osiride pag. 363. A.
+
+Ce qui n'étoit qu'une allégorie chez les Orientaux, parut une histoire réelle aux Grecs, encore grossiers et ignorans, et ceux-ci ne donnerent à cette Déesse le nom d'Aphrodite, et ne parlerent de son origine, que lorsqu'ils commencerent à s'instruire et à percer le voile des allégories Orientales. Jupiter donne naissance à Vénus, parce que ce Dieu est l'air* le plus subtil, et l'on sait par Julius Firmicus Maternus* que les Assyriens regardoient cet élément comme le premier, et qu'ils l'adoroient sous le nom de Vénus Vierge.
+
+*) Phurnutus de Naturâ Deorum cap. 19. p. 181.
+
+*) Jul. Firmicus Maternus, de Errore Profanarum Religionum, pag. 9.
+
+Les autres opinions sur la naissance de cette Déesse, tiennent aux autres systêmes philosophiques des Orientaux, sur le premier principe. Ceux qui vouloient que ce principe fût l'eau, la firent naître dans la mer. Ceux qui prétendoient que c'étoit le feu, lui donnerent pour pere, Uranus. Je ne m'étendrai point sur cet objet, afin de ne point répéter ce que j'ai dit ailleurs.
+
+Les opinions des Mythologues sur Vénus Uranie, étoient donc fondées sur les allégories dont les Orientaux enveloppoient leur Philosophie. On n'a pas plus de peine à reconnoître l'origine de Vénus Pandémos, Porné, Etæra ou Courtisane, que celle d'Uranie. Elles passerent aussi de l'Asie en Grece, et se répandirent dans les pays où les Grecs porterent leur Religion avec leurs usages. Les autres Vénus ont plus ou moins de rapport avec Uranie ou Pandémos. Celles, par exemple, qui sont connues sous les noms de Limnesia, d'Acræa, d'Euplœa, _etc._ viennent manifestement d'Uranie, qui étant supposée fille d'Uranus et de la mer, devoit naturellement présider à l'élément où elle étoit née. Les Vénus Apostrophia, Epistrophia, Verticordia, Nicéphore, Armée, Belthès, Epitalaria, _etc._ ont aussi un rapport manifeste à Uranie. Les Vénus Volgivaga, Porné, Etæra, Castnia, Péribasia ou Divaricatrix, Salacia, Lubia, Lubentina, Volupia, _etc._ doivent être placées sous la dénomination de Pandémos. En un mot, toutes les Vénus possibles, si l'on en excepte quelques unes qui doivent leur origine à la flatterie, ou, à des événemens particuliers, pourroient se ranger sous l'une ou l'autre de ces deux classes ; mais en mettant plus d'ordre dans ce Mémoire, on y auroit répandu une monotonie, qu'on n'autoit jamais pu faire disparoitre avec tout l'art possible.
+
+Après avoir parlé des différentes Vénus, de ses Noms et Surnoms, des Temples, Autels et Statues qu'on lui a élevés, j'ai traité de son Culte, des Sacrifices et des Fêtes instituées en son honneur, sans oublier les animaux, les plantes, et autres choses qui lui étoient consacrées. Je finis enfin par ses Enfants, les Dieux qui se plaisoient en sa compagnie, et par la description de son Ceste. Ce Mémoire m'auroit paru manquer essentiellement, si j'eusse omis ces derniers articles.
+
+Il ne me reste plus, Messieurs, qu'à vous pfésenter différents index, que je crois, non-seulement utiles, mais encore indispensables pour se rappeller les principaux objets de cette Dissertation. Le premier, des Auteurs et des Editions dont j'ai fait usage, vous mettra à portée de comparer mes citations. Le second sera des Auteurs corrigés et expliqués. Le quatrieme, des Noms et Surnoms de Vénus. Le troisieme, des Temples et Autels de Vénus. Le cinquieme, des Statues de la Déesse ; le sixieme, des Tableaux de la Déesse ; le septieme, enfin, des Artistes qui se sont illustrés par ces ouvrages.
+
 ...
