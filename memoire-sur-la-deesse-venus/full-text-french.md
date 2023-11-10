@@ -3098,11 +3098,245 @@ On avoit aussi consacré à la Déesse quelques animaux, l'Aphron,* petit poisso
 
 *) Scholiast. Apollonii Rhodii ad lib. 3. pag. 189.
 
-Le char de Vénus étoit traîné par des Cygnes :
+Le char de Vénus étoit traîné par des 
+Cygnes :
 
 _Sic fata, levavit_  
-_Sidereos artus, Thalami que egressa superbum_
+_Sidereos artus, Thalami que egressa superbum_  
+_Limen, Amyclæos ad fræna citavit Olores._
 
 *) Statii Sylvar. lib. 1. Sylv. 2. vers. 140.
+
+_Molles agitat Venus Aurea Cycnos._*
+
+*) Idem Sylvar. lib. 3. Sylv. 4. vers. 22.
+
+Remarquez aussi, je vous prie, Messieurs, l'Epithete d'Aurea, si familiere aux Poëtes, en parlant de cette Déesse, et sur laquelle je ne m'arrête pas, parce que je l'ai fait en plusieurs endroits de ce Mémoire et sur-tout _pag._ 256 _etc._
+
+Le char de Vénus n'étoit pas seulement trainé par des colombes et des cygnes, mais encore par des Passereaux, comme on le voit dans une Ode de Sappho, qui nous a été conservée par Denys d'Halicarnasse dans son Traité sur l'Arrangement des Mots, [GREEK].
+
+[GREEK].
+
+« De charmans Passereaux tiroient rapidement votre char du haut du ciel par le milieu de l'air. »
+
+Athénée, après avoir remarqué* que le Passereau étoit très-enclin à l'amour, et que, selon Terpsiclès, ceux qui s'en nourrissoient, y étoient aussi très-portés, ajoute, seroit-ce par cette raison que Sappho fait traîner le char de Vénus par des Passereaux.
+
+*) Athen. Deipnosophist. lib. 8. cap. 10. p. 391. F.
+
+Passons maintenant aux plantes qui étoient consacrées à la Déesse. J'ai parlé amplement du myrte page 106 _etc._ des pommes page 124 _etc._ Jupiter avoit voulu que la rose* fût sous la protection de Vénus, ainsi que le laurier l'étoit sous celle d'Apollon. Pausanias* avoit dit auparavant, avec beaucoup d'autres Auteurs, que la rose et le myrte lui étoient consacrés ; et c'étoit par cette raison qu'à Elis, les Graces, qui ne la quittoient point, portoient à la main, l'une une rose, l'autre une branche de myrte. On trouve aussi dans une Epigramme de Nossis,* que celui que n'a point aimé Vénus, ne connoît pas quelles sortes de fleurs sont les roses de Vénus.
+
+*) Nonnus Dionysiacor. lib. 12. vers. 3.
+
+*) Pausanias Eliacor. Posterior. sive lib. 6. cap. 24. pag. 514.
+
+*) Poetriarum Fragmenta ex Editione Wolfii p. 88.
+
+Les roses, de blanches qu'elles étoient, devinrent rouges, à l'occasion que je vais dire. Vénus aimoit Adonis et Mars aimoit Vénus. Celui-ci, qui étoit jaloux, et qui s'imaginoit que la mort de son rival mettroit fin à cet amour, le tua.* La Déesse indignée de ce meurtre, se jetta sur des roses, sans se donner le temps de prendre sa chaussure. Leurs épines la piquerent, et l'Ichor* qui sortit de ses piquures teignit la rose, et lui donna la couleur et l'odeur qu'elle a actuellement. D'autres disent que dans un festin qui se donna au ciel, et où l'on but beaucoup de Nectar, l'Amour en dansant renversa, d'un coup d'aîle, un cratere de Nectar, et que cette liqueur étant tombée sur terre, donna à la rose la couleur qu'on lui voit à présent.
+
+*) Geoponicorum lib. 11. cap. 17. pag. 312.
+
+*) J'ai lu quelque part, mais je ne me rappelle pas en quel endroit, que Mars se changea en sanglier pour tuer son rival.
+
+*) Les Dieux ne se nourrissant point des dons de Cérès et de Bacchus, n'ont point de sang, mais line liqueur qu'Homere appelle Ichor.
+
+J'ai déjà remarqué que les Grecs, au défaut d'une bonne Physique, inventoient mille fables ingénieuses pour rendre raison des phénomenes qu'ils ne pouvoient expliquer.
+
+Le Philyra, peau fort déliée qui se trouve entre l'écorce des arbres et l'aubour, étoit consacré à Vénus, parce que ce terme comprend, dit Phurnutus,* celui de [GREEK] aimer. Cette peau servoit à entrelasser les couronnes de fleurs, dont les Anciens faisoient un grand usage, comme l'ajoute le même Auteur. On connoît aussi ce vers d'Horace.
+
+_Displicent nexæ philyrâ coronæ._
+
+*) Phurnutus de Naturâ Deorum. c. 24. p. 199.
+
+Si l'on en croit encore le même* Phurnutus, on se gardoit bien d'offrir du buis à la Déesse : [GREEK]. Thomas Gale traduit ainsi : _cavent autem, ne Veneri buxum offerant, expiantes suam salacitatem._ Je n'oserois décider lequel est le plus absurde, ou la leçon des imprimés, ou la traduction. Les variantes portent [GREEK]. Comme j'ignorois que le buis fût en horreur à Vénus, et comme je ne voyois pas le rapport qu'il y avoit entre le buis [GREEK] et la lutte [GREEK], ou les fesses [GREEK], je lisois en partie d'après les Manuscrits, et en partie d'après mes conjectures : [GREEK]. On se garde bien d'offrir à la Déesse de l'Agnus Castus, à cause de l'aversion qu'elle a pour la stérilité. On sait que les feuilles de cet arbrisseau éteignent les ardeurs du tempérament, et que pour se conserver chastes, les femmes, qui devoient célébrer les Mysteres de la Bonne Déesse, couchoient sur des feuilles de cet arbuste, qu'on appelloit aussi [GREEK].
+
+*) Idem ibidem.
+
+Mais après y avoir bien réfléchi, j'ai reconnu que les Manuscrits avoient conservé la vraie leçon, si l'on excepte [GREEK] qu'il faut changer en [GREEK]. Ceux qui se sont familiarisés avec les Manuscrits, savent que l'Oméga est souvent confondu avec un Omicron suivi d'un Iota, et que l'Iota s'écrit a côté au lieu d'être souscrit, ce qui a donné bien des fois occasion de le prendre pour un Sigma. Je lis donc : [GREEK]. « On se garde bien d'offrir à la Déesse du buis, parce qu'on a, en quelque sorte, en horreur les plaisirs contraires à la nature renfermés dans ce mot. » M. de Villoison,* dont les connoissances devancent de beaucoup les années, et qui a une sagacité singuliere pour restituer les passages les plus désespérés, avoit bien vu qu'il falloit lire avec les Manuscrits [GREEK]. Ainsi, il n'y a dans cette correction que [GREEK] qui soit à moi.
+
+*) Cette phrase a été ajoutée après que le Prix m'a été adjugé.
+
+Cette Leçon paroîtra certaine, si l'on fait attention qu'il n'est presque question dans ce Chapitre de Phurnutus que de jeux de mots. On consacroit à Vénus le Philyra, parce que ce mot comprenoit [GREEK] aimer, y et l'on écartoit le buis de ses autels, parce que dans [GREEK] _buis_, étoit renfermé [GREEK] _nates_ deux mots dont l'origine est commune. _Voyez_ Eustathe sur Homere, _page_ 1322. ligne 38.
+
+Si le savant Alciat se fût rappellé ce passage de Phurnutus, il n'auroit point dit de cet arbrisseau, _Emblem._ 207.
+
+_Deliciis apta est, teneris et amantibus arbor :_  
+_Pallor inest illi, pallet et omnis amans._
+
+Le Lys étoit odieux à Vénus,* parce qu'il lui disputoit la beauté. Aussi pour s'en venger, fit-elle croître au milieu de ses pétales le membre de l'âne. Nicandre entendoit sans doute les pistiles avec les sommets qui s'élevent du fond du calyce. Je me rappelle cependant qu'un autre Poëte nomme cette fleur les délices de Vénus [GREEK]. Mais ayant oublié d'en faire la remarque, je n'ai pu retrouver ce passage, et vérifier si ma mémoire ne me trompe point.
+
+*) Nicandri Alexipharmac. vers. 406. _etc._
+
+Après avoir parlé des fêtes et des sacrifices en l'honneur de la Déesse, des animaux et des plantes qui lui étoient consacrés, il est naturel de dire un mot des offrandes qu'on lui faisoit. Pour ne point répéter ce qu'on a vu dans le cours de ce Mémoire, je me contenterai de dire que les jeunes filles étoient dans l'usage de consacrer à Vénus de petites figures ; témoin ce passage de Perse* : _Veneri donatæ à virgine pupæ_. Cela est confirmé par trois vers du cinquieme livre des Odes de Sappho, rapportés par Athénée,* qui nous apprennent encore qu'on lui consacroit des ornemens de tête. Cela est aussi apuyé par une Inscription Antique,* trouvée depuis peu à Athenes sur un marbre encastré dans le mur de l'Eglise dite _Panagia Spiliotissa_. On voit par cette Inscription, qui est fort altérée, que la personne dont il y est fait mention, et dont le nom est effacé, avoit consacré à ses dépens une petite Statue de la Déesse avec la lampe qui brûloit devant. On sait que les Payens allumoient des lampes dans leurs Temples : _placuere et lychnuchi pensiles in delubris_.* On représentoit même quelquefois la Déesse un flambeau à la main.
+
+*) Pers. sat. 2. vers. 70.
+
+*) Athen. Deipnosoph. lib. 9. pag. 410 E.
+
+*) Inscriptiones Antiquæ. Oxonii 1774. in-fol°. pag. 55.
+
+*) Plin. Histor. Natural. lib. 34. cap. 3. pag. 641 lin. 21.
+
+_Contectam myrto Venerem veneratur Aprilis ;_  
+_Lumen turis habet, quo nitet alma Ceres._  
+_Cereus et dextrâ flammas diffundit odoras._  
+_Balsama nec desunt, quîs redolet Paphie._*
+
+*) Anthologia Latina tom. 2. lib. 5. Epig. 75.
+
+Elle est représentée telle qu'elle est décrite dans ces vers, dans un Manuscrit de la Bibliotheque Impériale, et Pierre Lambecius l'a fait graver (_in Comment. de Biblioth. Vindobon. in Appendice, ad Lib. 4, pag. 277 et seq._), et Dom de Montfaucon, dans le premier Volume du Supplément à l'Antiquité Expliquée, _pag._ 29 et suiv.
+
+Ceux qui quittoient une profession avoient coutume d'en suspendre les instrumens dans les Temples des Dieux qui présidoient à cette profession. Il en étoit de même de ceux qui abandonnoient la milice de l'Amour. Ils offroient à Vénus les instrumens de musique qui avoient su toucher le cœur de leurs Maîtresses, les torches et les leviers qui avoient servi à brûler ou à enfoncer leurs portes. Horace le dit bien clairement dans cette Ode.*
+
+*) Horat. Carm. lib. 3. Od. 26.
+
+_Vixi puellis nuper idoneus,_  
+_Et militavi non sine gloriâ ;_  
+_Nunc arma defunctum que bello_  
+_Barbiton hic paries habebit,_  
+_Lævum marinæ qui Veneris latus_  
+_Custodit. Hic, hic ponite lucida_  
+_Funalia, et vectes et arcus_  
+_Oppositis foribus minaces._
+
+Il y a, dans l'Anthologie Grecque* de Constantin Céphalas, publiée par feu M. Reiske, une Epigramme, où Méleagre consacre à Vénus la lampe qui avoit été le témoin de ses plaisirs, et dans la même Collection une Epigramme de Marcus Argentarius,* qui dédie sa bouteille à la Déesse.
+
+*) Anthologiæ Græcæ à Constant. Cephalâ conditæ libri 3. pag. 16.
+
+*) Ibid. pag. 39.
+
+Les Courtisanes lui offroient aussi les instrumens de leur profession ; témoin cette Epigramme d'Asclépiade qu'on trouve dans les _Miscellanea Lipsiensia Nova, Tom. 9_, pag. _465_, que je vais mettre en Latin par respect pour mes Juges :
+
+_Tibi, Venus, Lysidice calcar hoc, domandis-et-regendis-equis-aptum, aureum stimulum pedis eleganti-surâ-præditi, dedicavit. Qui non unum exercuit segnem equum, ipsius tamen femur non cruentavit, ut agiliter motæ. Erat enim cursor non stimulandus. Qua propter telum hoc aureum tibi mediis in foribus suspendit._
+
+Elles dédioient quelquefois par reconnoissance une Statue à la Déesse. On en trouve la preuve dans une Epigramme de Nossis sur une Statue d'or, que Polyarchis avoit consacrée à la Déesse, et qu'on lit dans le Recueil des Femmes* qui ont écrit en vers, publié par Wolf.
+
+*) Poetriarum octo Erinnæ, myrus, Myrtidis, Corinnæ Fragmenta et Elogia, _etc._ pag. 90.
+
+« Nous avons été voir dans le Temple de Vénus cette belle Statue d'or de la Déesse, que lui a consacré Polyarchis, qui a acquis de grandes richesses par sa beauté. »
+
+Les Courtisanes, qui ne quittoient point leur profession, faisoient aussi quelquefois la même chose. Dans une Epigramme d'Asclépiade,* Plangone, après avoir vaincu la Courtisane Philænis, dédie à Vénus sur la porte de son Académie, le fouet et les rênes qui l'avoient si bien servie, afin d'engager la Déesse à lui être propice dans la suite. Tous les termes de cette Epigramme, dont je me contente de donner le sens, étant empruntés de l'équitation, j'espere qu'on excusera celui d'Académie, dont je me sers pour exprimer le lieu où cette Courtisane faisoit ses exercices.
+
+*) Miscellanea Lipsiensia Nova tom. 9. pag. 463.
+
+Dans une Epigramme d'Antipater de Sidon,* Bitinne consacre à Vénus-Uranie une chaussure charmante, Philænis une coëffure élégante, Anticléa un éventail, la belle Héraclée un voile, comparable pour la finesse à une toile d'araignée, et Aristotélia un serpent d'or qui lui embrassoit le pied. Ces Courtisanes étoient de Naucratis en Egypte, comme on le voit par une Epigramme d'Archias* sur ces mêmes personnes.
+
+*) Anthologia Græca à Constantino Cephalâ condita, pag. 24.
+
+*) Ibidem pag. 25.
+
+Dans une autre Epigramme de Leonidas de Tarente,* Callicratia dédie à Vénus un Amour d'argent, un miroir, des cheveux postiches, un peigne et la bande transparente qui retenoit son sein [GREEK]* : car c'est ainsi qu'il faut lire au lieu de [GREEK], qui ne devoit point embarrasser feu M. Reiske. On en lit une autre de Philétas de Samos,* où Nicias, âgée de cinquante ans et plus, suspend dans le Temple de Vénus sa chaussure, son miroir et sa ceinture.
+
+*) Ibidem pag. 26.
+
+*) Je me suis apperçu depuis, que M. Toup le Prince des Critiques Anglois, et l'un des plus Savans hommes qu'il y ait actuellement en Europe, m'avoit prévenu dans la seconde partie de ses _Emendationes in Suidam_ pag. 116.
+
+*) Anthologia Græca à Constantino Cephalâ condira, pag. 26.
+
+Je rapporte à regret ces traits qui paroissent choquer les bonnes mœurs ; j'y suis forcé par mon sujet. Mais je finis par l'exemple d'une femme respectable, je veux parler de Cythere de Bithynie* qui consacre à Vénus une Statue de marbre de Paros, et ne demande à la Déesse que de vivre dans l'union la plus parfaite avec son mari.
+
+*) Ibid. pag. 25.
+
+Il ne me reste plus à parler que des enfans de Vénus et des Dieux qui se plaisoient en sa compagnie.
+
+Vénus eut de Jupiter l'Amour,* de Dionysus Bacchus,* de Bacchus Priape* ; les Anciens en apportoient une raison naturelle dans leur Mythologie. Le vin, disoient-ils, excite vivement aux plaisirs de l'amour. Elle eut aussi de Mercure Hermaphrodite,* d'Anchise Enée, de Butés Eryx, d'Adonis Beroë, dont j'ai parlé plus haut, _pages_ 62 et 63 ; enfin, de Mars la Terreur* et l'Epouvante, Antéros* et Harmonie.* La Tradition des Anciens ne s'accordoit pas sur cette derniere. Car Dercyllus,* suivant le Scholiaste d'Euripide, prétendoit qu'elle étoit fille de Dracon, Roi de Thebes, que tua Cadmus. Ephorus assuroit qu'elle étoit fille d'Electre, petite-fille d'Atlas, et que Bacchus en naviguant près de Samothrace l'enleva. Démagoras disoit qu'Electre, étant venue de Libye en Samothrace, eut dans cette Isle de Jupiter, Dardanus et Harmonie ; et que Cadmus, qui cherchoit sa sœur, fut initié aux Mysteres de Samothrace ; ce qui lui donna occasion de voir Harmonie, qu'il enleva par les soins de Minerve. Cela est confirmé par Diodore de Sicile.* Mais les plus anciennes traditions portent, comme on l'a dit, qu'elle étoit fille de Vénus, et c'est ce qui a fait dire à Nonnus* qu'elle étoit le Sang de la Mer. Elle épousa Cadmus, comme je viens de le prouver, et l'on peut voir ce qu'en dit Nonnus dans ses Dionysiaques, Livre 3, depuis le vers 58 jusqu'à la fin du Livre.
+
+*) Lactant. de Falsâ Religione lib. 1. §. 17 p. 92.
+
+*) Hesychius voc. [GREEK].
+
+*) Diodor. Sicul. lib. 4. §. 6. tom. 1. pag. 251.
+
+*) Lactant. loco laudato.
+
+*) Hesiod. Theogon. vers. 934.
+
+*) Cicero de Naturâ Deorum, lib. 3. §. 23.
+
+*) Hesiodi Theogonia, v. 936 Eurip. Phœniss. v. 7.
+
+*) Scholiast. Euripidis ad Phœniss. vers 7.
+
+*) Diodor. Sicul. lib. v. §. 48 tom. 1. pag. 369.
+
+*) Nonnus Dionysiacor. lib. 13. vers. 408.
+
+Cette Harmonie étoit belle comme sa mere ; les Matelots, qui étoient sur le vaisseau où elle se trouvoit, la prennent pour Vénus, lui adressent leurs vœux, et la prient de leur envoyer un vent favorable : [GREEK].* Mais Lubin, qui a estropié, plutôt que traduit, les Dionysiaques de Nonnus, a rendu ce vers : _mitte mihi humidam pluviam_.
+
+*) Idem Ibidem. lib. 4. vers. 246.
+
+La mere des Amours se plaît à unir les cœurs, le Dieu de la Guerre à les diviser ; Vénus aime les jeux, les ris, la danse et tout ce qui inspire la gayeté ; Mars au contraire ne respire que le trouble, le sang, le carnage. Par quelle fatalité des Dieux, qui devroient avoir l'un pour l'autre le plus grand éloignement, s'unissent-ils ? Et comment Harmonie, la douce Harmonie est-elle le fruit de leur amour ? Les Anciens auroient-ils voulu dire que l'Amour subjugue les cœurs les plus féroces ? _fà spesso cader a Marte la sanguignosa spada_ ; cela peut être. Je suis cependant tenté de croire qu'ils couvroient de ce voile ingénieux leur systême sur la production des êtres. Tel est le sentiment de de grand nombre d'Anciens très-instruits. J'ignore s'il a été adopté par quelque Moderne. Quoi qu'il en soit, tâchons de le développer en peu de mots.
+
+La matiere étoit éternelle, selon les Anciens. Rien* ne s'étoit fait de rien, et rien ne pouvoit être anéanti. La naissance, suivant ce systême, étoit, non le passage du non-être à l'être, mais le passage de l'Adès,* c'est-à-dire, d'un état invisible et nullement soumis aux sens, à un état visible et sensible. Car [GREEK] est une contraction de [GREEK] et vient de l'Alpha privatif et de [GREEK], _je vois_. Delà vient que dans Homere, Minerve, voulant se rendre invisible à Mars, se couvre la tête du casque de Pluton, [GREEK]. Iliad. E. 845.
+
+*) [GREEK]. Hippocrat. de Diætâ, lib. 1. § 5.
+
+*) On dit aussi Hadès, avec une aspiration. Ce mot signifie Pluton, Enfer _etc._
+
+Les corps, ou si l'on veut, les différentes formes, sont produits par le mêlange de principes contraires, qui font continuellement effort l'un contre l'autre. Tant que l'équilibre subsiste, le corps demeure sous la même forme ; mais cet équilibre une fois détruit, ce corps se décompose d'une maniere ou d'autre, selon le principe qui prend le dessus. « L'homme et tous les animaux, dit Hippocrate au premier Livre de la Diete, §. 4, sont composés de deux choses contraires par leur qualité, mais utiles par leur mêlange, je veux dire, le feu et l'eau. » Tant que ces deux principes restent en équilibre, l'animal vit ; mais il périt, dès que l'un ou l'autre prédomine. C'est de cette union de parties contraires, et faisant perpétuellemant effort l'une sur l'autre, que résulte l'harmonie du monde ; car pour me servir de l'expression d'Héraclite,* « elle est composée, cette harmonie, de choses discordantes, et est telle que celle d'une lyre. »
+
+*) Ce passage d'Hippocrate est altéré dans l'original, je l'ai rétabli plus haut, pag. 88 _etc._ et l'ai traduit en consequence.
+
+*) [GREEK]. Plutarch. de Iside et Osiride, p. 369 B.
+
+Il est aisé d'expliquer d'après ces principes, les amours de Mars et de Vénus, et la naissance d'Harmonie, fruit de ces amours. « Suivant les Mythologues, dit Plutarque,* Harmonie nait de Mars et de Vénus, le premier cruel, et aimant les querelles, l'autre douce et aimable. Les Philosophes sont d'accord avec eux. Car Héraclite nomme ouvertement la Guerre, le Pere, le Roi, le Seigneur de toutes choses, et ce Philosophe ajoute, qu'en formant des vœux, pour que la Discorde fût bannie du séjour des Dieux et des Hommes, Homere faisoit, sans s'en douter, des imprécations contre l'origine de tout, puisque toutes choses doivent leur existence à cette guerre et à cette dissension. »
+
+*) [GREEK]. Plutarch. de Iside et Osiride pag. 370 C. et D.
+
+C'est ce qu'avoit dit Empédocle en d'autres termes, lorsqu'après avoir parlé des quatre élémens,* le feu, l'eau, la terre et l'air, il ajoute que « l'amitié est le lien qui les unit, et la discorde ce qui les désunit. » Il ne faut point croire cependant que ce Philosophe se soit servi de termes vagues, ou n'ayant aucun sens. Il entendoit par celui d'_amitié_ le juste mêlange des deux principes contraires qui fait qu'un corps existe, et par celui de _discorde_, la prédominance de l'un ou l'autre de ces deux principes. Ce que je dis des deux principes qui composent tous les corps ne contredit point le passage que je viens de citer d'Empédocle, par où il paroît qu'il y avoit selon lui quatre élémens. Car, Héraclite et beaucoup d'autres Philosophes n'admettoient d'autre principe que le feu.* Cet élément condensé s'humectoit, et étant épaissi devenoit eau, l'eau coagulée se changeoit en terre : [GREEK]. On voit que Diogene Laerce a oublié l'air, quoique Héraclite l'admette, comme on peut le voir dans Plutarque _de Placitis Philosophorum, Lib. 1. Cap. 3._ Ce passage est donc corrompu. Que veut dire en effet, le feu condensé _devient humide_ ? Je mets donc en la place de [GREEK], je répete [GREEK] qui a été omis, et je lis le passage entier : [GREEK]. Le feu condensé devient air, l'air épaissi devient eau, et l'eau coagulée se change en terre.
+
+*) [GREEK]. Diogen. Laert. lib. 8. Segment. 76.
+
+*) Diogen. Laert. lib. 9. Segment. 9.
+
+Lucrece confirme par ces beaux vers la correction qu'on vient de lire :
+
+_Et primum faciunt ignem se vertere in Auras_  
+_Aëris, hinc Imbrem gigni, Terram que creari_  
+_Ex Imbri, retroque à Terrâ cuncta reverti,_  
+_Humorem primum, post Aëra, deinde calorem._*
+
+*) Lucretius, lib. 1. vers. 783.
+
+Le sentiment d'Empédocle, je veux dire, l'amitié et la discorde,* étoit celui de l'Auteur de la vie d'Homere attribuée à Denys d'Halicarnasse. Après avoir dit que les élémens sont composés de contraires, du sec et de l'humide, du chaud et du froid ; que l'univers étoit formé du juste mêlange et de la proportion convenable de ces contraires ; que ces contraires, se réunissant quelquefois par l'amour, forment un tout, et sont d'autres sois emportés par leurs querelles, il ajoute : « c'est ce que nous montre d'une maniere énigmatique la fable de Mars et de Vénus. Celle-ci a le même pouvoir que l'amitié dans Empédocle, et Mars équivaut à la discorde de ce Philosophe. Delà vient qu'ils s'accordent quelquefois, et que d'autres fois ils se séparent. Le Soleil les indique, Vulcain* les lie et Neptune les détache. Il est clair par-là que la substance chaude et séche, et que la froide et l'humide, qui lui est contraire, forment quelquefois le tout, et le dissolvent quelquefois aussi. »
+
+*) Voyez la page précédente.
+
+*) Homeri vita. Vide Opuscula Mythologica, Physica, _etc._ edita à Thom Gale, pag. 328.
+
+*) Mas ignis... aqua femina, quod fetus ab ejus humore et eorum _vinctione_ sumit Venus. Varro de Linguâ Latinâ, lib. 4. pag. 18.
+
+Eustathe* explique cette fable de plusieurs manieres dans ses Commentaires sur l'Odyssée d'Homere. Il commence par un sens moral très-alambiqué ; delà il passe au systême d'Empédocle, qu'il ne me paroît pas avoir bien saisi, et finit ensuite par une explication tirée des Principes Mathématiques, dont j'espere que l'Académie me permettra de lui faire grace.
+
+*) Eustath. Commentar. in Homeri Odyss. Θ pag. 1597. lin. 49, 53 et 59.
+
+Après avoir parlé des Enfants de Vénus, il me reste à dire deux mots des Dieux qui ne la quittoient point, et qui se plaisoient en sa compagnie.
+
+Cérès étoit son amie et sa parente : _suscipit Ceres : tuis quidem lacrymosis precibus et commoveor et opitulari cupio, sed cognatæ meæ (Veneris) cum quâ etiam antiquum fœdus amicitiæ colo, bonæ præterea fœminæ, malam gratiam subire nequeo_.*
+
+*) Apul. Metamorphos. lib. 6. pag. 175.
+
+Dionysus étoit frere de Vénus, suivant Nonnus,* et de son commerce avec cette Déesse, il eut Bacchus. _Voyez_ Orphée Hymn. 56, vers 3 et 4. ; Hésychius au mot [GREEK]. Praxilla de Sicyone fait aussi Bacchus fils de Vénus, Hésychius _ibidem_. Mais il est bon de remarquer que Nonnus ne met point de distinction, comme Orphée, entre Dionysus et Bacchus. Si vous ôtez l'autorité de Praxilla, les autres sont de peu de poids. Quoi qu'il en soit, ce Dieu se plaisoit beaucoup avec Vénus, et cette Déesse lui avoit fait présent* d'un cratere d'or, ouvrage de Vulcain. On connoît le proverbe rapporté par Térence,* _sine Cerere et Libero friget Venus_ ; et même l'on sacrifioit à Vénus et à Bacchus, comme le dit Phurnutus,* parce que le vin excite aux plaisirs de l'amour. [GREEK]. Je rapporte ce passage en entier, afin d'avoir occasion de le corriger. [GREEK] ne faisant aucun sens, je lis en la place [GREEK]. Je crois cette correction indubitable ; cependant on pourroit lire avec un Manuscrit [GREEK]. C'est par cette raison qu'elle est appellée [GREEK] aimant le vin pur, dans Nonnus* et qu'Euripides,* dit que sans vin il n'y a point de Vénus. Apulée* nomme ce Dieu _Veneris Armiger_, et Aristophane dit, au rapport d'Athénée,* que le vin est le lait de Vénus.
+
+*) Nonnus Dionysiacor. lib. 19. vers. 122. lib. 29. vers. 83.
+
+*) Idem, lib. 19. vers. 118, 119 et 122.
+
+*) Terent. Eunuch. Act. 4. scen. 5. vers. 6.
+
+*) Phurnutus de Naturâ Deorum, cap. 30, p. 218.
+
+*) Nonnus Dionysiacorum, lib. 48. v. 685.
+
+*) Euripides in Bacchis, vers. 772.
+
+*) Apul. Metamorphos. lib. 2. pag. 46.
+
+*) Athen. Deipnosoph. lib. 1. cap. 12. p. 444 D.
+
+Orphée appelle* Vénus [GREEK] _adsessor_ de Bacchus, [GREEK], vénérable Assesseur de Bacchus. Anacréon donne aussi* à ce Dieu les mêmes mœurs qu'à l'Amour, et en fait l'amant de Vénus et le pere des Graces. L'allégorie est claire, et ce seroit faire injure à mes Juges que de m'arrêter à l'expliquer.
+
+*) Orph. Hymn. 54 vers. 7.
+
+*) Anacreon Od. 41 ex edit. Barnesii.
 
 ...
