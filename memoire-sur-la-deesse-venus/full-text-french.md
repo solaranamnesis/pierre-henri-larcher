@@ -3482,4 +3482,338 @@ Après avoir parlé des différentes Vénus, de ses Noms et Surnoms, des Temples
 
 Il ne me reste plus, Messieurs, qu'à vous pfésenter différents index, que je crois, non-seulement utiles, mais encore indispensables pour se rappeller les principaux objets de cette Dissertation. Le premier, des Auteurs et des Editions dont j'ai fait usage, vous mettra à portée de comparer mes citations. Le second sera des Auteurs corrigés et expliqués. Le quatrieme, des Noms et Surnoms de Vénus. Le troisieme, des Temples et Autels de Vénus. Le cinquieme, des Statues de la Déesse ; le sixieme, des Tableaux de la Déesse ; le septieme, enfin, des Artistes qui se sont illustrés par ces ouvrages.
 
-...
+## Des Auteurs et des Editions dont je me suis servi.
+
+Ælianus de Naturâ Animalium Græ. et Lat. cum notis Variorum Londini. 1744. _in_-4°. 2 vol.
+
+Æschinis Orationes. _Voyez_ le N°. 109.
+
+Æschyli Tragœdiæ cum notis Stanleii et Corn. de Paw. Hagæ Comitum. 1745. _in_-4°. 2 vol.
+
+Alexandri ab Alexandro Genialium Dierum, lib. 6 cum notis Variorum. Lugd. Bat. 1673. _in_-8°. 2 vol.
+
+Sti. Ambrosii Opera. Parisiis. 1686. _in-fol._ 2 vol.
+
+Ammiani Marcellini Rerum Gestarum libri qui supersunt cum notis Lindenbrogii, Valesiorum et Gronovii. Lugd. Bat. 1693. _in-fol._
+
+Anacreontis Opera ex. Editione Barnesii. _in_-8°.
+
+Analecta Veterum Poëtarum Græcorum. Græce. Editore Rich. Franc. Phil. Brunck. Argentorati. 3 vol. _in_-8°.
+
+Anonymi Descriptio Ponti Euxini Græ. et Lat. _Voyez_ le N°. 62.
+
+Anthologia Græca ex Edit. Henrici Stephani. 1566. _in_-4°.
+
+Anthologiæ Græcæ à Constantino Cephala conditæ Libri tres, cum notis Reiske, Lipsiæ, 1754, _in_-8°.
+
+Anthologia Latina cum Notis Variorum. Curâ Petri Burmanni Secundi. Amstelodami. 1759. _etc._ _in_-4°. 2 vol.
+
+Antiquæ Inscriptiones Græcæ à Marquardo Gudio collectæ. Leovardiæ. 173 1. _in-fol._
+
+Antiquitates Asiaticæ ; per Edm. Chishull. Londini. 1728. _in-fol._
+
+L'Antiquité Expliquée et Représentée en figures ; par Dom de Montfaucon. Paris. 1719. _etc. in-fol._ 15 vol.
+
+Antonini Liberalis Transformationum Congeries. Græ. et Lat. cum Notis Munckeri et Verheyk. Lugd. Bat. 1774. _in_-8°.
+
+Apollodorus de Diis. _Voyez_ N°. 73.
+
+Apollonii Rhodii Argonautica, antiquis unà et optimis cum Commentariis. Græce. Venetiis Aldus 1521. _in_-8°.
+
+Appiani Alexandrini Historiæ Romanæ. Græ. et Lat. Amstelæd. 1670. 2 vol. _in_-8°.
+
+Apuleii Opera cum Interpretatione et Notis Jul. Floridi. ad usum Delphini. Parisiis. 1688. 2 vol. _in_-4°.
+
+Arati Phænomena, Theonis Scholia, Eratosthenis Catasterismoi, Dionysii Hymni. Græce. Oxonii. 1672. _in_-8°.
+
+Aristæneti Epistolæ Græ. et Lat. ex Edit. Abresch. Zwollæ. 1749 _in_-8°.
+
+Aristotelis Opera. Parisiis. 1619. _in-fol._ 2 vol.
+
+Aristophanis Comœdiæ Græ. et Lat. cum Notis Kusteri. Amstelod. 1710. _in-fol._
+
+Arnobi Afri adversus Gentes lib. 7. cum integris omnium Commentariis, Lugd. Bat. 1651. _in_-4°.
+
+Arriani Periplus Ponti Euxini. Græ. et Lat. _Voyez_ le N°. 62.
+
+Artemidori et Achmetis Oneirocritica. Parisiis 1603. _in_-4°.
+
+Athenæi Deipnosophistarum libri 15 Græ. et Lat. cum Notis Casauboni. Lugduni. 1612. _in-fol._
+
+Auctores Mythographi Latini cum Notis Van Staveren et Variorum Lugd. Batavor. 1742. _in_-4°.
+
+Sti. Augustini Opera. Parisiis. 1679. _in-fol._ 2 vol.
+
+Aviani Ora Maritima. _Voyez_ le 4e. volume du N. 62.
+
+Auli Gellii Noctes Atticæ cum Notis Variorum. Lugd. Batav. 1666. _in_-8°.
+
+Ausonii Opera cum Interpretatione et Notis Floridi, quibus suas adjecit Jo. Bapt. Souchai Parisiis. 1730. _in_-4°.
+
+Julius Capitolinus. _Voyez_ le N. 72.
+
+Catulli opera cum Notis Vulpii. Patavii. 1739. _in_-4°.
+
+Charitonis de Chæreâ et Callirrhoë Amatoriarum Narrationum libri 7. Græ. et Lat. Amstel. 1750. _in_-4°.
+
+Ciceronis Opera.
+
+Claudiani Opera cum Notis Heinsii et Burmanni. Amstelod. 1760. _in_-4°.
+
+Clementis Alexandrini Opera. Græ. et Lat. cum Notis Potteri. Oxonii 1715. _in-fol._ 2 vol.
+
+Codinus de Originibus Constantinopoleos. _Voyez_ le 7e. vol. du N°. 100.
+
+Coluthi Raptus Helenæ. Græ. et Lat. cum Notis van Lennep. Leovardiæ 1747. _in_-8°.
+
+Damascius de Principiis. In Anecdotis Wolfii.
+
+Demosthenis Orationes. Græ. et Lat. cum Notis Wolfii et Taylor. Cantabrigiæ _in_-4°. 2 vol.
+
+Diodori Siculi Bibliotheca Historica Græ. et Lat. cum Notis Wesselingii. Amstelod. 1746. _in-fol._ 2 vol.
+
+Diogenis Laertii de Vitis et Dogmatibus clarorum Philosophorum. Libri 10. Græ. et Lat. Amstel. 1692. 2 vol. _in_-4°.
+
+Cassii Dionis Historiæ Romanæ quæ supersunt Græ. et Lat. cum Notis Reimari. Hamburgi. 1750 _in-fol._ 2 vol.
+
+Dionysii Halicarnassensis Historia Romana. Græ. et Lat. cum Notis Jo. Hudson. Oxonii 1704. _in-fol._ 2 vol.
+
+_Dionysii Periegetæ Orbis descriptio. _Voyez_ le 4e. volume du N°. 62.
+
+Alex. Donatus de Urbe Româ. _Voyez_ les Antiquités Latines de Grævius.
+
+Emendationes in Suidam, Auctore Joh. Toup. Londini 1760. _etc._ _in_-8°. 4 vol.
+
+Ennii Fragmenta quæ supersunt recognita studio Hesselii, cum Notis Vossii et aliorum. Amstelod. 1707. _in_-4°.
+
+Eratosthenis Enarrationes eorum quæ in Astra sunt relata. Græce. _Voyez_ le N°. 21.
+
+Etymologicum Magnum. Heidelbergæ. 1594. _in-fol._
+
+Euclidis Opera Græ. et lat. Oxonii. 1703. _in-fol._
+
+Euripidis Tragœdiæ Græ. et Lat. cum Notis Josuæ Barnesii. Cantabrigiæ. 1694. _in-fol._
+
+Eusebii Pamphili Præparatio Evangelica. Græ. et Lat. cum Notis Vigeri. Parisiis 1628. _in-fol._ 2 vol.
+
+Eusebii Pamphili, Socratis, Sozomeni, Theodoreti, _etc._ Historia Ecclesiastica. Græ. et Lat. cum Notis Valesii et Gul. Reading. Cantabrigiæ. 1720. _in-fol._ 3 vol.
+
+Excerpta ex Dionysii Byzantii Anaplo Bospori Thracii. _Voyez_ le trois. vol. du N°. 62.
+
+Sexti Pompei Festi de Verborum signification cum Notis Dacerii. Amstelod. 1700. _in_-4°.
+
+Juiius Firmicus Maternus de Errore Profanarum Religionum. ad calcem Minutii Felicis.
+
+Fulgentii Mythologicon Libri Duo. _Voyez_ le N°. 29.
+
+Geopraphiæ veteris Scriptores Græci minores. Græ. et Lat. Oxonii. 1698. _in_-8°. 4 vol.
+
+Geoponicorum sive de Re Rustica Libri 20. Græ. et Lat. ex Edit. Petri Needham. Cantabrigiæ. 1704. _in_-8°.
+
+Gierusalemme Liberata da Torquato Tasso.
+
+Gori Museum Etruscum. Florentiæ 1737. _etc. in-fol._ 3 vol.
+
+Harpocrationis de Vocibus liber. Græce cum Notis et Observationibus Jaccobi Gronovii _etc._ Lugd. Batav. 1696 _in_-4°.
+
+Hephæstionis Enchiridion de Metris cum Scholiis antiquis. Græce. cum Notis Joh. Cornel. de Paw. Ultrajecti. 1726. _in_-4°.
+
+Herodiani Historiarum Libri 8. Græ. et Lat. cum Notis. Oxonii. 1704. _in_-8°.
+
+Herodoti Historiarum Libri Græc. et Lat. cum Notis Wesseling et Valckenaer. Amst. 1763. _in-fol._
+
+Hesiodi Opera Græc. et Lat. cum Notis Variorum et Thom. Robinson. Oxonii. 1737. _in_-4°.
+
+Hesychii Lexicon cum Notis Alberti Lugd. Bat. 1746, _etc._ _in-fol._ 2 vol.
+
+Historiæ Augustæ Scriptores cum Notis Salmasii et Variorum. Lugd. Batav. 1671. _in_-8°. 2 vol.
+
+Historiæ Poëticæ Scriptores Antiqui. Græc. et Lat. cum Notis Th. Gale. Londini 1676. _in_-8°.
+
+Hippocratis Opera Græc. et Lat. ex Editione Van. der Linden. Lugd. Batav. 1665. _in_-8°. 2 vol.
+
+Homeri Ilias et Odyssea Græc. cum Commentariis Eustathii. Romæ. 1542, 1550. _in-fol._ 4 vol.
+
+Homeri Vita Græc. et Lat. _Voyez_ le N°. 108.
+
+Horapollinis Hieroglyphica Græc. et Lat. cum integris Observationibus et Notis Merceri, Hœschelii, Caussini et Joh. Corn. de Paw. Trajecti ad Rhenum. 1727 _in_-4°.
+
+Horatii Opera.
+
+Hospinianus de Origine Festorum Ethnicorum.
+
+Hygini Fabulæ. _Voyez_ le N°. 29.
+
+Jamblichus de Vitâ Pythagoræ. Græc. et Lat. cum Notis Kusteri. Amstelod. 1707. _in_-4°.
+
+Inscriptiones Antiquæ, pleræque nondum editæ : in Asia minori et Græciâ, præsertim Athenis Collectæ, cum Appendice, curâ Ricardi Chandler. Oxonii. 1774. _in-fol._
+
+Flavii Josephi Opera Græc. et Latin. cum Notis Havercampi. Amstel. 1726. _in-fol._ 2 vol.
+
+Justini Historiæ cum Notis variorum. Lugd. Batav. 1760. _in_-8°. 2 vol.
+
+Lactanti Opera quæ extant cum Notis Variorum. Lugd. Batav. 1660 _in_-8°.
+
+Ælius Lampridius. _Voyez_ le N°. 72.
+
+Luciani Opera Græc. et Lat. cum Notis Hemsterhusii et Gesneri. Amstelod. 1743. 4 vol. _in_-4°.
+
+Lucretii de Rerum Naturâ, Lib. sex.
+
+Lycophronis Alexandra Græc. et Lat. cum Scholiis Græcis. Oxonii. 1702. _in-fol._
+
+Macrobii Opera cum Notis Variorum Londini. 1694. _in_-8°.
+
+Joh. Antiocheni Malalæ Historia Chronica cum Interpretatione et Notis Chilmeadi. Græc. et Lat. accedit Epistola Rich. Bentleii ad Millium. Oxonii. 1692. _in_-8°.
+
+Manilii Astronomicon ex Recensione et cum Notis Rich. Bentleii. Londini. 1739. _in_-4°.
+
+Marciani Periplus Græ. et Lat. _Voyez_ le N°. 62.
+
+Marmora Oxoniensia. Oxonii. 1763. _in-fol._
+
+Martialis Epigrammata cum Notis ad usum Delphini. Amstelod. 1701. _in_-8°.
+
+Maximi Tyrii Dissertationes. Græc. et Lat. Londini. 1740. _in_-4°.
+
+Melampus [GREEK]. Ad calcem Aristotelis Francofurtani.
+
+Mémoires de l'Académie des Inscriptions et Belles-Lettres. _in_-4°. 37 vol.
+
+Mémoires sur l'Egypte Ancienne et Moderne, par M. Danville. _in_-4°. 1766.
+
+Meursii Opera omnia. Florentiæ. 1741. _in-fol._ 12 vol.
+
+Minucii Felicis Octavius cum integris omnium Notis ac Commentariis. Lugd. Batav. 1672. _in_-8°.
+
+Miscellanea Græcorum aliquot Scriptorum Carmina. Londini. 1722. _in_-4°.
+
+Miscellanea Lipsiensia Nova. Lipsiæ. _in_-8°. 10 vol.
+
+Musæi de Herone et Leandro Carmen. Græc. et Lat. cum Scholiis Græcis et Notis Math. Rover. Lugd. Batav. 1737. _in_-8°.
+
+Nicandri Theriaca et Alexipharmaca Græc. et Lat. et Ital. Florentiæ. 1764. _in_-8°.
+
+Nonni Panopolitæ Dionysiaca Græc. et Lat. Hanoviæ. 1605. _in_-8°.
+
+Julii Obsequentis quæ supersunt ex Libro de Prodigiis cum Notis Schef. feri. Curâ Franc. Oudendorpii. Lugd. Batav. 1720. _in_-8°.
+
+Opuscula Mythologica, Ethica, _etc._ Græc. et Lat. Amst. 1688. _in_-8°.
+
+Oratorum Veterum Orationes. Græ. ex Edit. Henrici Stephani. Henr. Stephanus. 1575. _in-fol._
+
+Orphei Argonautica, Hymni, _etc._ Græc. et Lat. cum Notis Henr. Stephani, Eschenbachii et Gesneri. Lipsiæ. 1764. _in_-8°.
+
+Jac. Philippi d'Orville Sicula quibus Siciliæ Veteris rudera illustrantur. Amstel. 1764. _in-fol._
+
+Ovidii Opera.
+
+Pantheon Ægyptiorum, Auctore Jablonski Francofurti ad Viadrum. 1740. _in_-8°. 3 vol.
+
+Onuphri Panvinii Descriptio Urbis Romæ, _in-fol._ _Voyez_ les Antiquités Latines de Grævius.
+
+Pausaniæ Descriptio Græciæ. Græc. et Latin. cum Notis Kuhnii. Lipsiæ. 1696. _in-fol._
+
+Pervigilium Veneris cum Notis Variorum. Hagæ Comitum. 1712. _in_-8°.
+
+Petronii Satyric. quæ supersunt cum integris Doctorum Virorum Commentariis, curâ Petri Burmanni. Amstel. 1743. _in_-4°. 2 vol.
+
+Philonis Judæi Opera Græc. et Lat. cum Notis Mangey. Londini. 1742. _in-fol._ 2 vol.
+
+Philostratorum quæ supersunt omnia Græc. et Lat. cum Notis Olearii. Lipsiæ. 1709. _in-fol._
+
+Photii Bibliotheca Græc. et Lat. Rhotomagi. 1653. _in-fol._
+
+Phurnuti de Naturâ Deorum Commentarius Græc. et Latin., ex Edit. Thom. Gale. _Voyez_ le N°. 105.
+
+Pindari Opera Græc. et Latin. cum Scholiis Græcis. Oxonii. 1697. _in-fol._
+
+Platonis Opera Græc. et Lat. ex Interpretatione Serrani. Cum Adnotationibus Henr. Stephani. Parisiis. 1578. _in-fol._ 3 vol.
+
+Plinii Historia Naturalis cuin Notis Harduini. Parisiis. 1723. _in-fol._ 3 vol.
+
+Plutarchi Opera Græc. et Lat. Parisiis. 1624. _in-fol._ 2 vol.
+
+Poëtriarum Octo Erynnæ, Myrûs, _etc._ Fragmenta et Elogia. Græc. et Lat. cum Notis Wolfii. Hamburgi. 1734. _in_-4°.
+
+Polybii Historiarum Libri qu supersunt. Græc. et Lat. Amstelod. 1670. _in_-8°. 3 vol.
+
+Porphyrius de Abstinentiâ ab esu Animalium. Græc. et Lat. Trajecti ad Rhenum. 1767. _in_-4°.
+
+Priapeia, sive diversorum Poetarum Lusus, cum Notis Franci, Scaligeri et Lindenbruch. Patavii. 1664. _in_-12.
+
+Procli Philosophi Hymni. Græce. _Voy._ le N°. 102.
+
+Propertii Opera cum Notis Vulpii Patavii, _in_-4°. 2 vol.
+
+Prudentii quæ extant ex recensione et cum Notis Nic. Heinsii. Amstelod. Elzevir. 1667. _in_-12.
+
+Ptolemæi Tabulæ Urbium insignium. _Voyez_ le 3e vol. du N°. 62.
+
+Ptolemæi Hephæstionis Historia. Græ. et Lat. _Voyez_ le N°. 108.
+
+Rosini Antiquitates Romanæ, cum Notis Dempsteri. Trajecti ad Rhenum. 1701. _in_-4°. 
+
+Seldeni de Dis Syris Syntagmata duo. Amstelod. 1680. _in_-8°.
+
+Luc. Annæi Senecæ quæ extant cum Notis Variorum. Amstelod. 1672. _in_-8°. 3 vol.
+
+Servii Commentarius in Virgilium.
+
+Scriptores Rei Rusticæ Veteres Latini, Cato, Varro, Columella, _etc._ curâ Gesneri. Lipsiæ. 1773. _in_-4°. 2 vol.
+
+Socratis Historia Ecclesiastica Græc. et Lat. cum Notis Valesii et Gul. Reading. Cantabrigiæ. 1720. _in-fol._
+
+Solini Polyhistor et Claudii Salmasii Exercitationes Plinianæ, in C. Julii Solini Polyhistora. Trajecti ad Rhenum. 1689. _in-fol._
+
+Sophoclis Tragœdiæ Græc. et Latin. cum Scholiis Græcis. Londini. 1746. _in_-8°. 3 vol.
+
+Sozomeni (Hermiæ) Historia Ecclesiastica. Græc. et Lat. cum Notis Valesii et Gul. Reading. Cantabrigiæ. 1720. _in-fol._
+
+Spanheim de Usu et Præstantiâ Numismatum Antiquorum. Londini et Amstel. 1706 et 1717. _in-fol_ 2 vol.
+
+Statii Opera cum Notis Variorum. Lugd. Batavor. 1671. _in_-8°.
+
+Statii Sylyæ. cum Notis Marklandi. Cantabrigiæ. 1728. _in_-4°.
+
+Stephanus Byzantinus, Græc. et Lat. cum Notis Berkelii. Lugd. Batav. 1694. _in-fol._
+
+Strabonis Rerum Geographicarum Libri 17. Græc. et Lat., cum Notis Casauboni. Amst. 1707. _in-fol._
+
+Suetonius cum Animadversionibus Ernesti. Lipsiæ. _in_-8°.
+
+Suidæ Lexicon Græc. et Lat. cum Not. Kusteri. Cantabrigiæ. 1705. _in-f._ 3 vol.
+
+Symmachi Epistolarum Lib. 10. Lugd. Batav. 1653.
+
+Tacitus cum Notis Brotier. Parisiis. 1771. _in_-4°. 4 vol.
+
+Tertulliani Opera cum Notis Rigaltii. Parisiis. 1634. _in-fol._
+
+Themistii Orationes Græc. et Lat. cum Notis Petavii et Harduini. Parisiis. 1684, _in-fol._
+
+Theocriti quæ supersunt, Græce, cum Notis Joh. Toupii et Th. Warton. Oxonii. _in_-4°. 2 vol.
+
+Theodori Prodromi Rhodantes et Dioclis Amorum, Libri 9. Græc. et Lat. Parisiis. 1625. _in_-8°.
+
+[GREEK]. Parisiis. 1543. _in_-4°.
+
+Thucydidis de Bello Peloponnesiaco Libri 8. Græc. et Lat. cum Notis Dukeri. Amst. 1731. _in-fol._
+
+Titi Livii Historiarum Libri qui supersunt omnes, cum Notis integris Variorum, curâ Arnoldi Drackenborch. Lugd. Batav. 1738, _etc._ _in_-4°. 7 vol.
+
+Valerii Flacci Argonautica, cum Notis Petri Burmanni. Lugd. Batav. 1724. _in_-4°.
+
+Valerii Maximi Factorum Dictorum que Memorabilium Libri novem, cum Notis Variorum et Abrah. Torrenii. Leidæ. 1726. _in_-4°.
+
+Varro de Linguâ Latinâ. Parisiis. 1585. _in_-8°.
+
+Publ. Victor de Regionibus Romæ. _Voyez_ les Antiquités Latines de Grævius.
+
+Vincentii Bellovacensis Speculum Historiale.
+
+Vitruvii de Architecturâ Libri 10. cum Notis diversorum. Ex Edit. Joh. de Laer. Amstelod. 1649. _in-fol._
+
+Xenophontis Opera omnia Græc. et Lat. Oxonii. 1703. _in_-8°. 5 vol.
+
+Zosimi Historiæ Novæ, Libri sex. Græc. et Lat. Oxonii. 1679. _in_-8°.
