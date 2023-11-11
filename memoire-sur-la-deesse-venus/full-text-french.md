@@ -3722,7 +3722,7 @@ Jac. Philippi d'Orville Sicula quibus Siciliæ Veteris rudera illustrantur. Amst
 
 Ovidii Opera.
 
-Panthéon Ægyptiorum, Auctore Jablonski Francofurti ad Viadrum. 1740. _in_-8°. 3 vol.
+Pantheon Ægyptiorum, Auctore Jablonski Francofurti ad Viadrum. 1740. _in_-8°. 3 vol.
 
 Onuphri Panvinii Descriptio Urbis Romæ, _in-fol._ _Voyez_ les Antiquités Latines de Grævius.
 
