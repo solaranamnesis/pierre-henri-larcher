@@ -198,7 +198,7 @@ On lui donnait Adonis pour époux, selon Cicéron.* Elle était aussi adorée à
 
 *) Lucianus de Syriâ Deâ, §. 6. tom. 3. pag 454.
 
-Cette fête se célébrait, non-seulement à Byblos, mais encore en Assyrie et presque partout l'Orient, pour perpétuer, disent les Mythologues, les amours de la Déesse avec Adonis. Ces amours lui avoient fait donner les noms d'[GREEK]* et d'Adonias.* Mille Auteurs et Théocrite entr'autres, dans les Adoniazousai, parlent de cette fête, et si l'on rassemblait tous les détails épars de côté et d'autre, on pourrait en donner une description curieuse et circonstanciée. Mais je laisse à d'autres ce soin. Il me suffit de rapporter l'explication qu'en donnaient les Physiciens. Ils entendaient par Adonis* le Soleil, par Vénus l'Hémisphère supérieur de la terre, dont, suivant eux, nous n'occupons qu'une partie, et par Proserpine, l'Hémisphère inférieur. Lorsque le Soleil, en parcourant les douze signes de zodiaque, entre dans les six inférieurs, Vénus est alors censée pleurer, parce que Proserpine retient Adonis ou le Soleil auprès d'elle. Mais lorsqu'après avoir parcouru ces signes, il se rapproche de notre hémisphère, la Déesse reprend sa sérénité accoutumée. Cette physique n'est pas d'une grande exactitude ; car le Soleil n'est jamais plus près de nous qu'en hiver. Quoi qu'il en soit, une statue de la Déesse sur le mont Liban, avait la main gauche dans son habit, la tête couverte, le visage triste, et même on croyait voir couler des larmes de ses yeux. Cette image représentait l'hiver.
+Cette fête se célébrait, non-seulement à Byblos, mais encore en Assyrie et presque partout l'Orient, pour perpétuer, disent les Mythologues, les amours de la Déesse avec Adonis. Ces amours lui avoient fait donner les noms d'Αδωναίη* et d'Adonias.* Mille Auteurs et Théocrite entr'autres, dans les Adoniazousai, parlent de cette fête, et si l'on rassemblait tous les détails épars de côté et d'autre, on pourrait en donner une description curieuse et circonstanciée. Mais je laisse à d'autres ce soin. Il me suffit de rapporter l'explication qu'en donnaient les Physiciens. Ils entendaient par Adonis* le Soleil, par Vénus l'Hémisphère supérieur de la terre, dont, suivant eux, nous n'occupons qu'une partie, et par Proserpine, l'Hémisphère inférieur. Lorsque le Soleil, en parcourant les douze signes de zodiaque, entre dans les six inférieurs, Vénus est alors censée pleurer, parce que Proserpine retient Adonis ou le Soleil auprès d'elle. Mais lorsqu'après avoir parcouru ces signes, il se rapproche de notre hémisphère, la Déesse reprend sa sérénité accoutumée. Cette physique n'est pas d'une grande exactitude ; car le Soleil n'est jamais plus près de nous qu'en hiver. Quoi qu'il en soit, une statue de la Déesse sur le mont Liban, avait la main gauche dans son habit, la tête couverte, le visage triste, et même on croyait voir couler des larmes de ses yeux. Cette image représentait l'hiver.
 
 *) Orphei Argonautic. vers. 30.
 
@@ -212,7 +212,7 @@ _Nec te prætereat Veneri ploratus Adonis._*
 
 *) Ovid. Artis Amatoriæ. lib. 1. vers. 75.
 
-Nous avons remarqué qu'elle était particulièrement honorée sur le mont Liban. Son temple passait pour avoir été bâti par Cinyras.* Elle prenait delà le nom de Libanitis.* Mais je ne trouve pas que Nonnus le lui ait donné, comme l'avance Dom de Montfaucon dans son Antiquité Expliquée, mais bien celui de Libaneis,* dont ne parle point ce sçavant. C'est en ce lieu que la vient trouver* Junon pour la prier de lui prêter ce Ceste enchanteur, dont je parlerai dans la suite ; et dont elle veut faire usage pour tromper Jupiter, qui voulait rendre Bacchus vainqueur des Indiens. On voit que Nonnus a emprunté cet Episode d'Homère ; mais cela n'est pas de mon sujet. Il me suffit d'avoir prouvé par cet Auteur, le culte qu'on rendait à la Déesse en Phénicie. Vénus était seule lorsque Junon l'aborda, quoique les Grâces ne la quittassent point, comme je le dirai autre part. Mais Nonnus* fait observer qu'elle les avait envoyés cueillir des fleurs en divers pays. Eschyle remarque pareillement que la Phénicie lui était consacrée ; aussi appelle-t-il cette contrée* [GREEK], la terre fertile en bleds de Vénus. On nommait encore la Déesse Assyrienne,* et Erythréene,* à cause des honneurs qu'on lui rendait en Assyrie et sur les bords de la Mer Rouge.
+Nous avons remarqué qu'elle était particulièrement honorée sur le mont Liban. Son temple passait pour avoir été bâti par Cinyras.* Elle prenait delà le nom de Libanitis.* Mais je ne trouve pas que Nonnus le lui ait donné, comme l'avance Dom de Montfaucon dans son Antiquité Expliquée, mais bien celui de Libaneis,* dont ne parle point ce sçavant. C'est en ce lieu que la vient trouver* Junon pour la prier de lui prêter ce Ceste enchanteur, dont je parlerai dans la suite ; et dont elle veut faire usage pour tromper Jupiter, qui voulait rendre Bacchus vainqueur des Indiens. On voit que Nonnus a emprunté cet Episode d'Homère ; mais cela n'est pas de mon sujet. Il me suffit d'avoir prouvé par cet Auteur, le culte qu'on rendait à la Déesse en Phénicie. Vénus était seule lorsque Junon l'aborda, quoique les Grâces ne la quittassent point, comme je le dirai autre part. Mais Nonnus* fait observer qu'elle les avait envoyés cueillir des fleurs en divers pays. Eschyle remarque pareillement que la Phénicie lui était consacrée ; aussi appelle-t-il cette contrée* τᾶς Αϕροδιτας πολύπυραν αἶαν, la terre fertile en bleds de Vénus. On nommait encore la Déesse Assyrienne,* et Erythréene,* à cause des honneurs qu'on lui rendait en Assyrie et sur les bords de la Mer Rouge.
 
 *) Lucianus de Syriâ Deâ. §. 9. Tom. 3. p. 456.
 
@@ -250,7 +250,7 @@ Les Arméniens, ainsi que plusieurs autres peuples de l'Asie, adoraient Vénus s
 
 *) Idem. lib. 12. pag. 838. A. B.
 
-Strabon, qui en parle en quatre endroits de sa Géographie, la nomme seulement Anaïtis. Pausanias, qui dit qu'elle avait en Lydie un temple magnifique, l'appelle Diane Anaïtis,* ainsi que* Plutarque, qui nous apprend que Diane était honorée sous ce nom à Ecbatanes. Mais Clément d'Alexandrie* nous instruit que Vénus Anaïtis était adorée à Suses et à Ecbatanes ; car les Critiques ont très-bien vu qu'il fallait lire en cet endroit : [GREEK], au lieu de [GREEK].
+Strabon, qui en parle en quatre endroits de sa Géographie, la nomme seulement Anaïtis. Pausanias, qui dit qu'elle avait en Lydie un temple magnifique, l'appelle Diane Anaïtis,* ainsi que* Plutarque, qui nous apprend que Diane était honorée sous ce nom à Ecbatanes. Mais Clément d'Alexandrie* nous instruit que Vénus Anaïtis était adorée à Suses et à Ecbatanes ; car les Critiques ont très-bien vu qu'il fallait lire en cet endroit : τῆς Αϕροδίτης Αναΐτιδος, au lieu de τῆς Αϕροδίτης ταναΐδος.
 
 *) Pausanias Laconic. sive. lib. 3. cap. 16. pag. 249.
 
@@ -284,7 +284,7 @@ Le culte de Vénus avait pénétré jusque dans l'Isle de Taprobane, aujourd'hui
 
 *) Dionysii Periegesis, vers. 592.
 
-Si nous passons delà en Egypte, nous y trouverons le culte de la Déesse établi. Les différents Nomes, villes et ports qui prenaient son nom, et dont il serait trop long de faire l'énumération, font assez voir que cette Déesse y était en grande vénération. Les Tentyrites* lui avoient élevé un temple dans leur ville. Elle était adorée à Chusæ,* bourgade du Nome d'Hermopolis, dont les habitants honoraient les vaches, parce qu'ils étaient persuadés que cet animal appartenait à la Déesse, à cause de l'ardeur qu'il sent pour les plaisirs. _Alexander ab Alexandro_ la nomme Vénus Cornuta,* sans aucune autorité, et quoi-qu'Elien assure que c'était Uranie. Son culte était établi à Atarbechis,* dans l’Isle Prosopitis. Hérodote ne dit pas positivement que ce fut Uranie ; mais l'on sait que les Egyptiens ne connurent la Vénus des Grecs, que lorsque ces derniers s'établirent parmi eux. Elle s'appelait Athor dans la langue du pays. L'auteur de l'Etymologicum Magnum, dit au mot Athur : « Athur est un mois. Les Egyptiens appellent Venus Athor, et ont aussi donné le même nom au troisième mois de l'année » : [GREEK]. Ainsi, la ville d'Atarbechis, où elle était principalement honorée, n'était autre que la ville de Vénus, puisqu'Atur ou Athor, comme l'écrit Orion le Thébain dans l'Etymologicum Magnum, était Vénus, et que Baki signifie encore aujourd'hui chez les Coptes une ville. C'était donc la même ville que Strabon* appelle Aphroditès Polis, parce qu'il interprétait son nom en grec.
+Si nous passons delà en Egypte, nous y trouverons le culte de la Déesse établi. Les différents Nomes, villes et ports qui prenaient son nom, et dont il serait trop long de faire l'énumération, font assez voir que cette Déesse y était en grande vénération. Les Tentyrites* lui avoient élevé un temple dans leur ville. Elle était adorée à Chusæ,* bourgade du Nome d'Hermopolis, dont les habitants honoraient les vaches, parce qu'ils étaient persuadés que cet animal appartenait à la Déesse, à cause de l'ardeur qu'il sent pour les plaisirs. _Alexander ab Alexandro_ la nomme Vénus Cornuta,* sans aucune autorité, et quoi-qu'Elien assure que c'était Uranie. Son culte était établi à Atarbechis,* dans l’Isle Prosopitis. Hérodote ne dit pas positivement que ce fut Uranie ; mais l'on sait que les Egyptiens ne connurent la Vénus des Grecs, que lorsque ces derniers s'établirent parmi eux. Elle s'appelait Athor dans la langue du pays. L'auteur de l'Etymologicum Magnum, dit au mot Athur : « Athur est un mois. Les Egyptiens appellent Venus Athor, et ont aussi donné le même nom au troisième mois de l'année » : Αθὺρ ὁ μὴν, καὶ τὴν Αϕροδίτην Αιγύπτιοι καλοῦσιν Αθώρ. Καὶ μῆνα γε τὸν τρίτον τοῦ ἕτους ἐπώνυμον ταύτῃ πεποιήκασιν. Ainsi, la ville d'Atarbechis, où elle était principalement honorée, n'était autre que la ville de Vénus, puisqu'Atur ou Athor, comme l'écrit Orion le Thébain dans l'Etymologicum Magnum, était Vénus, et que Baki signifie encore aujourd'hui chez les Coptes une ville. C'était donc la même ville que Strabon* appelle Aphroditès Polis, parce qu'il interprétait son nom en grec.
 
 *) Strabo, lib. 17. pag. 1169. C.
 
@@ -296,7 +296,7 @@ Si nous passons delà en Egypte, nous y trouverons le culte de la Déesse établ
 
 *) Strabo, lib. 17. pag. 1154. C.
 
-Je crois que cette Déesse est la même que celle qui était connue en Egypte, selon Hésychius, sous le nom de [GREEK], ténébreuse. On fait qu'Athor signifie encore à présent chez les Coptes la nuit. Cela me paraît tenir au Système Théologique du pays, où les ténèbres* étaient le principe de tout. On fait que le prétendu Orphée, qui a beaucoup puisé dans les Livres sacrés des Egyptiens, dit dans l'Hymne de la Nuit* : « Je te chanterai, ô Nuit, mère des Dieux et des hommes ; Nuit, principe de tout, et que nous appellerons Vénus. » Et dans l'Hymne à Vénus,* « tout vient de vous, lui dit-il, vous avez uni le monde, vous exercez un empire souverain sur les trois Parques ; vous donnez la vie à tout ce qui est dans le Ciel, sur la terre, dans la mer et dans l'abime. »
+Je crois que cette Déesse est la même que celle qui était connue en Egypte, selon Hésychius, sous le nom de Σκοτία, ténébreuse. On fait qu'Athor signifie encore à présent chez les Coptes la nuit. Cela me paraît tenir au Système Théologique du pays, où les ténèbres* étaient le principe de tout. On fait que le prétendu Orphée, qui a beaucoup puisé dans les Livres sacrés des Egyptiens, dit dans l'Hymne de la Nuit* : « Je te chanterai, ô Nuit, mère des Dieux et des hommes ; Nuit, principe de tout, et que nous appellerons Vénus. » Et dans l'Hymne à Vénus,* « tout vient de vous, lui dit-il, vous avez uni le monde, vous exercez un empire souverain sur les trois Parques ; vous donnez la vie à tout ce qui est dans le Ciel, sur la terre, dans la mer et dans l'abime. »
 
 *) Damascius de Principiis in Anecdotis Wolfii, tom. 3. pag. 260.
 
@@ -372,11 +372,13 @@ L'Isle de Cypre ne faisant point partie de la Grèce, j'aurais pu me contenter d
 
 Comment en effet passer sous silence une Isle aussi renommée par le culte de cette Déesse, que Délos l'était par celui d'Apollon ? Les Poètes, dit le même Himérius, attribuent Cypre à Vénus, de même que Délos à Apollon. On connait ce vers d'Horace ; _Sic te diva potens Cypri_, et ceux-ci d'Homère* :
 
-[GREEK].
+Ἀιδοΐην Χρυσοστέϕανον καλὴν Αϕροδίτην  
+ἄσομαι, ἣ πάσης Κύπρου κρήδεμνα λέλογχεν  
+εἰναλίης.
 
 *) Homeri Hymn. secund. in Venerem, initio.
 
-« Je chanterai la respectable, la belle Vénus, qui a eu en partage l'Isle de Cypre entière. » Les Poètes l'appelaient _Cyprigenia_, parce qu'elle était née dans l'Isle de Cypre ; _Cypria Venus_* ou _Cypris_,* à cause du culte qu'on lui rendait en cette Isle. Mais Phurnutus* prétend que cette Isle lui fut peut-être consacrée, parce que son nom convient en quelque sorte à la conception, à la gestation, [GREEK], ainsi qu'il faut lire au lieu de [GREEK] qui est une faute manifeste. Le traducteur latin paraît avoir eu en vue cette correction, qui est appuyée par l'Auteur de l'_Etymologicum Magnum_* qui dit au mot [GREEK], que [GREEK] est une syncope pour [GREEK], qui fait concevoir. Cela est encore confirmé par Eustathe,* où on lit : [GREEK].
+« Je chanterai la respectable, la belle Vénus, qui a eu en partage l'Isle de Cypre entière. » Les Poètes l'appelaient _Cyprigenia_, parce qu'elle était née dans l'Isle de Cypre ; _Cypria Venus_* ou _Cypris_,* à cause du culte qu'on lui rendait en cette Isle. Mais Phurnutus* prétend que cette Isle lui fut peut-être consacrée, parce que son nom convient en quelque sorte à la conception, à la gestation, τῆ Κύησει, ainsi qu'il faut lire au lieu de τῆ Κρύψει qui est une faute manifeste. Le traducteur latin paraît avoir eu en vue cette correction, qui est appuyée par l'Auteur de l'_Etymologicum Magnum_* qui dit au mot Κύπρις, que Κύπρις est une syncope pour Κυόπορις, ἡ τὸ κύειν ποριζουσα, τουτ᾿ ἐστι, παρέχουσα, qui fait concevoir. Cela est encore confirmé par Eustathe,* où on lit : διὰ τὸ ἐξ Αϕροδιτης τὸ κύειν πόρεσθαι ὅ ἐστι πορίζεσθαι ἢ πορσύηεσθαι.
 
 *) Arnobius adversus Gentes. lib. 5. pag. 169.
 
@@ -427,7 +429,7 @@ Le récit de Tacite paraît se contredire ; je crois cependant qu'il n'est pas d
 
 *) Suetonius in Tito, cap. 5.
 
-J'ai remarqué que quelques-uns regardaient le Roi Cinyras comme fondateur de ce Temple. Ses descendants, que l'on appelait Cinyrades, en furent les Prêtres, comme on le voit dans Hésychius au mot [GREEK], et dans le Scholiaste* de Pindare. Thamyras ayant ensuite apporté de Cilicie la Science des Haruspices, sa postérité présida aussi aux cérémonies religieuses ; mais elle perdit dans la suite ce privilège, qui passa tout entier à la famille royale, de crainte que celle-ci ne fut éclipsée par une race étrangère. On ne consulte plus actuellement, dit Tacite,* que le Prêtre de la famille de Cinyras.
+J'ai remarqué que quelques-uns regardaient le Roi Cinyras comme fondateur de ce Temple. Ses descendants, que l'on appelait Cinyrades, en furent les Prêtres, comme on le voit dans Hésychius au mot Κιννυράδαι, et dans le Scholiaste* de Pindare. Thamyras ayant ensuite apporté de Cilicie la Science des Haruspices, sa postérité présida aussi aux cérémonies religieuses ; mais elle perdit dans la suite ce privilège, qui passa tout entier à la famille royale, de crainte que celle-ci ne fut éclipsée par une race étrangère. On ne consulte plus actuellement, dit Tacite,* que le Prêtre de la famille de Cinyras.
 
 *) Scholiastes Pindari ad Pyth. Od. 2. vers. 2 pag. 183. col. 2. lin. 10.
 
@@ -441,7 +443,7 @@ L'ancienne Paphos éloignée* de dix stades de la mer, avait encore un temple de
 
 *) Strabo lib. 14. pag. 1002. B. C.
 
-Vénus Paphia s'appelait aussi [GREEK], si l'on en croit Hésychius ; mais Jean Frédéric Gronovius corrige [GREEK]. C'est peut-être une faute d'impression. On trouve aussi _Paphie_ dans l'Épitaphe d'Homonœa,* dont je vais transcrire une partie :
+Vénus Paphia s'appelait aussi Φάπη, si l'on en croit Hésychius ; mais Jean Frédéric Gronovius corrige Φάπίη. C'est peut-être une faute d'impression. On trouve aussi _Paphie_ dans l'Épitaphe d'Homonœa,* dont je vais transcrire une partie :
 
 _Tu qui securâ procedis mente, parumper_  
 _Siste gradum, quæso, verbaque pauca lege._  
@@ -464,15 +466,17 @@ _Exemploque tuo neminem amare vetes._
 
 Comme l'original grec ne se trouve que dans des ouvrages où il n'y a pas d'apparence qu'on aille le chercher, et dans les Analectes des Poètes grecs qui n'ont point encore vu le jour, je pense qu'on ne sera pas fâché de le trouver ici.
 
-[GREEK]* [GREEK],
-
-[GREEK].
+Ἑρμίονῃ ποτ᾿ ἐγώ πιθανῆ συνέπαιζον ἐχούσῃ  
+Ζωνίον ἐξ ἀνθέων ποικίλον, ὦ Παϕίη, 
+Χρύσεα γράμματ᾽ ἔχον · δίολου δ᾽ ἐγέγραπτο.  
+Φίλει με  
+Καὶ μὴ λυπηθῇς, ἥντις ἔχῃ μ᾿ ἕτερος.
 
 *) Analecta Veterum Poetar. Græcor. Tom. 1. pag. 214. 16.
 
 « Je jouais un jour avec la persuasive Hermione. Elle était parée d'une ceinture de fleurs en broderie, sur laquelle on lisait en lettres d'or ces mots : aimez-moi, et ne vous attristez pas si quel qu’autre me possédé. »
 
-Phurnutus prétend* que Vénus a été nommée _Paphia_ de [GREEK], je trompe. Mais il faut lire avec Eustathe [GREEK], dont se servaient les Anciens pour signifier tromper* [GREEK] n'est pas grec. On pourrait lire [GREEK] en ce passage de Cornutus, et cette leçon se trouve dans quelques manuscrits ; mais l'autre est celle d'Eustathe.
+Phurnutus prétend* que Vénus a été nommée _Paphia_ de ἀποϕίσκω, je trompe. Mais il faut lire avec Eustathe ἀπαϕίσκω, dont se servaient les Anciens pour signifier tromper* διὰ τὸ ἀπαϕίσκειν ἤγουν ἀπατᾷν κατὰ τοὺς παλαιοὺς... Ἀποϕίσχω n'est pas grec. On pourrait lire ἀπάϕω en ce passage de Cornutus, et cette leçon se trouve dans quelques manuscrits ; mais l'autre est celle d'Eustathe.
 
 *) Phurnutus de Naturâ Deorum, cap. 24. pag. 198.
 
