@@ -482,7 +482,7 @@ Phurnutus prétend* que Vénus a été nommée _Paphia_ de ἀποϕίσκω, je
 
 *) Eustath. commentar. in Homeri Odyss. Θ. pag. 1600. lin. 62.
 
-Passons maintenant à Amathunte, autre Ville de la même Isle, où Venus n'était pas moins honorée qu'à Paphos, et qui lui donnait le nom d'_Amathusias_* et d'_Amathusia_.* Tacite* donne à penser qu'Amathus, fils du Roi Aërias, est le fondateur du Temple de Vénus. La Statue* de la Déesse avait une barbe, le corps et l'habit d'une femme, avec un sceptre et les parties sexuelles de l'homme. On l'appelait [GREEK]. Les hommes lui sacrifiaient en habit de femme, et les femmes en habit d'homme.
+Passons maintenant à Amathunte, autre Ville de la même Isle, où Venus n'était pas moins honorée qu'à Paphos, et qui lui donnait le nom d'_Amathusias_* et d'_Amathusia_.* Tacite* donne à penser qu'Amathus, fils du Roi Aërias, est le fondateur du Temple de Vénus. La Statue* de la Déesse avait une barbe, le corps et l'habit d'une femme, avec un sceptre et les parties sexuelles de l'homme. On l'appelait Αϕροδίτος. Les hommes lui sacrifiaient en habit de femme, et les femmes en habit d'homme.
 
 *) Symmach. lib. 1. Epist. 8.
 
@@ -492,7 +492,7 @@ Passons maintenant à Amathunte, autre Ville de la même Isle, où Venus n'étai
 
 *) Servius ad Virgilii Æneid. lib. 2. vers. 632.
 
-Macrobe fait la même observation* : _Signum etiam ejus est Cypri barbatum corpore sed veste muliebri cum sceptro ac staturâ virili, et putant eandem marem ac feminam esse_. Le texte est altéré et mal ponctué. Il faut lire avec Servius : _Signum etiam ejus est Cypri barbatum, corpore et veste muliebri, cum sceptro et naturâ virili_. Les deux sexes de cette Vénus expliquent le _duplex Amathusia_* de Catulle que les Commentateurs* n'ont point entendu. On voit aussi pourquoi Hésychius l'appelle [GREEK]. Les Anciens étaient fort incertains si elle était mâle ou femelle. Lævinus dit quelque part, suivant Macrobe,* _Venerem igitur almum adorare, sive femina, sive mas est_. C'est selon le même Auteur, par la même raison que Virgile a dite : _ducente Deo_, en parlant de Vénus, au lieu de _Deâ_ ; mais il est permis d'en douter. On sait que Virgile suit les Grecs pas à pas, et que ceux-ci faisaient le mot [GREEK] des deux genres. Tout le monde connait le commencement de la Harangue de Démosthène _pro Coronâ_. [GREEK].
+Macrobe fait la même observation* : _Signum etiam ejus est Cypri barbatum corpore sed veste muliebri cum sceptro ac staturâ virili, et putant eandem marem ac feminam esse_. Le texte est altéré et mal ponctué. Il faut lire avec Servius : _Signum etiam ejus est Cypri barbatum, corpore et veste muliebri, cum sceptro et naturâ virili_. Les deux sexes de cette Vénus expliquent le _duplex Amathusia_* de Catulle que les Commentateurs* n'ont point entendu. On voit aussi pourquoi Hésychius l'appelle Αϕρόδιτος. Les Anciens étaient fort incertains si elle était mâle ou femelle. Lævinus dit quelque part, suivant Macrobe,* _Venerem igitur almum adorare, sive femina, sive mas est_. C'est selon le même Auteur, par la même raison que Virgile a dite : _ducente Deo_, en parlant de Vénus, au lieu de _Deâ_ ; mais il est permis d'en douter. On sait que Virgile suit les Grecs pas à pas, et que ceux-ci faisaient le mot Θεος des deux genres. Tout le monde connait le commencement de la Harangue de Démosthène _pro Coronâ_. θεοῖ ἔυχομαι πᾶσι ὴλ πάσαις.
 
 *) Macrob. Saturnal. lib. 3. cap. 8. pag. 283.
 
@@ -502,7 +502,7 @@ Macrobe fait la même observation* : _Signum etiam ejus est Cypri barbatum corpo
 
 *) Macrob. Saturnal. lib. 3. cap. 8. pag. 283.
 
-Les passages ci-dessus rapportés, prouvent bien l'existence de cette Statue dans l'Isle de Cypre, mais ne disent pas qu'elle fut à Amathunte. Hésychius levé la difficulté. Pæon, dit-il au mot [GREEK], qui a écrit l'histoire d'Amathunte, assure que la Déesse était représentée comme un homme. On voit que je suis la correction de Kuster, qui lisait d'après Plutarque* [GREEK] en la place de [GREEK] qui ne fait aucun sens. Kuster nous apprend dans sa note, que Meursius lisait en cet endroit [GREEK] ; mais cette correction s'éloigne trop du texte.
+Les passages ci-dessus rapportés, prouvent bien l'existence de cette Statue dans l'Isle de Cypre, mais ne disent pas qu'elle fut à Amathunte. Hésychius levé la difficulté. Pæon, dit-il au mot Αϕρόδιτος, qui a écrit l'histoire d'Amathunte, assure que la Déesse était représentée comme un homme. On voit que je suis la correction de Kuster, qui lisait d'après Plutarque* Παίων ὡς en la place de Παίανισον qui ne fait aucun sens. Kuster nous apprend dans sa note, que Meursius lisait en cet endroit πωγωνίαν ; mais cette correction s'éloigne trop du texte.
 
 *) Plutarch. in Theseo, pag. 9. A.
 
