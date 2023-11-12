@@ -20,9 +20,9 @@ Qu'on ne s'imagine pas suffire au plan de l'Académie à l'aide des Tables des M
 
 Si nous avions l'Ouvrage de* Socrate de Cos sur les surnoms des Dieux, et les événements qui y avoient donné occasion, le plan de l'Académie serait en partie rempli, et content d'y renvoyer, je passerais aux Temples et aux Statues élevés en l'honneur de Vénus. Mais, puisque ce Livre n'est point venu jusqu'à nous, je vais tâcher d'en réparer la perte le mieux que je pourrai, en rassemblant en un seul et même corps tout ce que les Anciens nous ont laissé sur cette Déesse.
 
-*) Diogen. Laert. lib. 2. segment. 47. pag. 109. Voyez aussi la Note de Ménage. Le Scholiaste d'Apollonius Rhodius (ex edit. Aldi, pag. 135. lin. 6.) cite ce Socrate de Cos, [GREEK] ; mais il faut lire [GREEK] dans les Dénominations. L'[GREEK] se confond souvent avec dans l'[GREEK] dans les manuscrits.
+*) Diogen. Laert. lib. 2. segment. 47. pag. 109. Voyez aussi la Note de Ménage. Le Scholiaste d'Apollonius Rhodius (ex edit. Aldi, pag. 135. lin. 6.) cite ce Socrate de Cos, ἐν ταῖς ἐπικλήσταιστι ; mais il faut lire ἐπικλήστεστι dans les Dénominations. L'αι se confond souvent avec dans l'ε dans les manuscrits.
 
-C'est avec raison que Théocrite félicite Vénus sur la multitude de noms qu'on lui a donnés et de Temples qu'on lui a élevés, [GREEK]* [GREEK]. Jamais Déesse a-t-elle en effet été connue sous un plus grand nombre de rapports, ou a-t-elle eu un culte plus étendu ?
+C'est avec raison que Théocrite félicite Vénus sur la multitude de noms qu'on lui a donnés et de Temples qu'on lui a élevés, πολυώνυμε καὶ πολύναε.* Jamais Déesse a-t-elle en effet été connue sous un plus grand nombre de rapports, ou a-t-elle eu un culte plus étendu ?
 
 *) Theocrit. Idyll. 15. vers. 109.
 
@@ -62,11 +62,13 @@ La Vénus, que Cicéron nomme la première, comme je viens de le remarquer, éta
 
 *) Apul. Metamorphos. lib. 11. pag. 357 et 358.
 
-Elle était la Cause Universelle répandue dans toute la nature, [GREEK].* C'est sous ce point de vue qu'Orphée a dit, que tout ce qui respirait dans le ciel, sur la terre, et dans les abîmes de la mer, était son ouvrage.
+Elle était la Cause Universelle répandue dans toute la nature, πάντα γὰρ ἐκ στέθεν ἐσττὶν.* C'est sous ce point de vue qu'Orphée a dit, que tout ce qui respirait dans le ciel, sur la terre, et dans les abîmes de la mer, était son ouvrage.
 
 *) Orphei Hymn. 54. vers. 4.
 
-[GREEK].*
+Γεννᾷς δὲ τά πάντα  
+ὅστστάτ᾽ ἐν οὐρανῷ ἐσττι καὶ ἐν γαίη πολυκάρπῳ,  
+Ἐν πόντῳ τε βυθῷ τε.*
 
 *) Orphei Hymn. 54. vers. 5.
 
@@ -76,13 +78,13 @@ Ces Vers prouvent que le sentiment de Barthius, qui faisait dire à Lucrece* que
 
 *) Servius ad Virgilii Æneid. lib. 10. vers. 83.
 
-Cette Déesse exerçait un empire souverain sur les Parques,* [GREEK]. Aussi Proclus de Lycie assure-t-il, dans un Hymne, qu'il lui* adresse, que les Grands de Lycie avoient souvent évité les traits de la mort par sa puissance.
+Cette Déesse exerçait un empire souverain sur les Parques,* Κρατέεις τριστστεεῶν Μοιρῶν. Aussi Proclus de Lycie assure-t-il, dans un Hymne, qu'il lui* adresse, que les Grands de Lycie avoient souvent évité les traits de la mort par sa puissance.
 
 *) Orph. Hymn. 54. vers. 5.
 
 *) Procli Hymn. 1. in Venerem. vers. 7. etc.
 
-Elle était Vierge* [GREEK]. Julius Firmicus Maternus* parle aussi de Vénus Vierge, ce qui ne peut convenir qu'à Vénus Uranie ; mais comme cet Auteur ne paraît point en avoir eu connaissance, il ajoute tout de suite : _Si tamen Veneriplacuit aliquando Virginitas_.
+Elle était Vierge* ΚουραΦροδίτη. Julius Firmicus Maternus* parle aussi de Vénus Vierge, ce qui ne peut convenir qu'à Vénus Uranie ; mais comme cet Auteur ne paraît point en avoir eu connaissance, il ajoute tout de suite : _Si tamen Veneriplacuit aliquando Virginitas_.
 
 *) Id. ibid. vers. 1.
 
@@ -104,7 +106,7 @@ Hérodote* dit la même chose, à cela près qu'il assure que le Temple d'Ascalo
 
 *) Stus Ambrosius adversus Symmachum. lib. 2. pag. 840.
 
-On voit par-là que la Déesse Mylitta, adorée à Babylone, était la même qu’Uranie. Hésychius dit aussi la même chose au mot [GREEK]. Son culte était pur dans l'origine ; mais bientôt il dégénéra, et les endroits, où l'on s'assemblait pour lui rendre hommage, devinrent, dans la suite, des lieux de prostitution. C'est un fait avéré, et reconnu par tous les Ecrivains de l'antiquité. S'opposer à leur témoignage, c'est établir dans l'Histoire ancienne un Pyrrhonisme capable de refluer sur l'Histoire moderne, et de lui porter des coups très-dangereux.
+On voit par-là que la Déesse Mylitta, adorée à Babylone, était la même qu’Uranie. Hésychius dit aussi la même chose au mot Μύλητα. Son culte était pur dans l'origine ; mais bientôt il dégénéra, et les endroits, où l'on s'assemblait pour lui rendre hommage, devinrent, dans la suite, des lieux de prostitution. C'est un fait avéré, et reconnu par tous les Ecrivains de l'antiquité. S'opposer à leur témoignage, c'est établir dans l'Histoire ancienne un Pyrrhonisme capable de refluer sur l'Histoire moderne, et de lui porter des coups très-dangereux.
 
 Les femmes se prostituaient à Babylone, une fois en leur vie, en l'honneur de cette Déesse. Elles attendaient* dans son Temple l'arrivée des étrangers. Lorsqu'une femme y avait pris place, elle ne pouvait s'en retourner chez elle, qu'un étranger ne lui eut jette de l'argent sur les genoux, en lui disant : J'invoque la Déesse Mylitta, et qu’il n'eût eu commerce avec elle hors du lieu sacré. Le Prophète Jérémie* parle clairement de cet usage, dans la Lettre qu'il écrit aux Juifs, qui dévoient être emmenés captifs à Babylone.
 
@@ -120,9 +122,9 @@ Zosime, qui s'étend sur le culte de Vénus à Aphaques, ne parle point de cette
 
 *) Zosim. Histor. lib. 1. pag. 53.
 
-Ce fut en cette ville que Vénus donna à Adonis le premier et le dernier embrassement, suivant l'Auteur de l'Etymologicum Magnum, qui nous apprend au mot [GREEK], qu'Aphaca signifie en Syriaque* un baiser. Cette Vénus avait aussi nom* Architis, probablement d'Arca, ville dans le voisinage d'Aphaques, où elle était adorée. Ainsi, je ne vois pas la nécessité de changer avec Pontanus cette dénomination.
+Ce fut en cette ville que Vénus donna à Adonis le premier et le dernier embrassement, suivant l'Auteur de l'Etymologicum Magnum, qui nous apprend au mot Αϕακα, qu'Aphaca signifie en Syriaque* un baiser. Cette Vénus avait aussi nom* Architis, probablement d'Arca, ville dans le voisinage d'Aphaques, où elle était adorée. Ainsi, je ne vois pas la nécessité de changer avec Pontanus cette dénomination.
 
-*) M. de Villoison, qui possède aussi-bien les Langues Orientales que le Grec, m'a communiqué cette note, ci-après que le Prix m'a été adjugé.  « L'Auteur de l'Etymologicum magnum a bien raison d'observer que ce nom d'une Ville, située près du Liban, est Syriaque, et qu'il signifie _s'embrasser_. On retrouve encore le mot d'Aphak en ce sens, dans la version Syriaque des Actes des Apôtres, chap. 20. vers. 10. dans la version Syriaque de la Genèse, chapitre 29. ꝟ. 13 et chap. 33. ꝟ. 4. et dans celle du quatrième Livre des Rois, chap. 4. ꝟ. 16. Il est singulier que ce mot, propre et particulier au Syriaque, ne se retrouve ni dans le Chaldéen, ni dans l'Hébreu, ni dans l'Arabe, ni dans l'Ethiopien, langues qui ont le même fond, les mêmes racines et la même marche que le Syriaque, et qui ne sont toutes que des dialectes de la Langue Orientale ; rapports si évidens, que Strabon en a été frappé, lorsqu'il observe (lib. 1. pag. 70. ed. d'Amsterd.) que les Arméniens, les Syriens et les Arabes se ressemblent beaucoup dans leurs langues, leur manière de vivre et la forme de leurs corps, » [GREEK].
+*) M. de Villoison, qui possède aussi-bien les Langues Orientales que le Grec, m'a communiqué cette note, ci-après que le Prix m'a été adjugé.  « L'Auteur de l'Etymologicum magnum a bien raison d'observer que ce nom d'une Ville, située près du Liban, est Syriaque, et qu'il signifie _s'embrasser_. On retrouve encore le mot d'Aphak en ce sens, dans la version Syriaque des Actes des Apôtres, chap. 20. vers. 10. dans la version Syriaque de la Genèse, chapitre 29. ꝟ. 13 et chap. 33. ꝟ. 4. et dans celle du quatrième Livre des Rois, chap. 4. ꝟ. 16. Il est singulier que ce mot, propre et particulier au Syriaque, ne se retrouve ni dans le Chaldéen, ni dans l'Hébreu, ni dans l'Arabe, ni dans l'Ethiopien, langues qui ont le même fond, les mêmes racines et la même marche que le Syriaque, et qui ne sont toutes que des dialectes de la Langue Orientale ; rapports si évidens, que Strabon en a été frappé, lorsqu'il observe (lib. 1. pag. 70. ed. d'Amsterd.) que les Arméniens, les Syriens et les Arabes se ressemblent beaucoup dans leurs langues, leur manière de vivre et la forme de leurs corps, » τὸ γὰρ τῶν Αρμενίων ἔθνος καὶ τὸ τῶν Σύρων, καὶ τῶν Αράβων, πολλὴν ὀμοϕυλίαν ἐμϕαίνει, κατά τε τὴν διάλεκτον, καὶ τοὺς βίους, καὶ τους τῶν στωμάτων χαρακτήρας καὶ μάλισττα καθὸ πληστιόχωροι ἐιστὶ.
 
 *) Macrob. Saturnal. lib. 1. cap. 21. pag. 209.
 
@@ -140,7 +142,7 @@ Les Babyloniens nommaient aussi Vénus Molis. « Il jura* par Molis : car tel es
 
 Les Babyloniens l'appelaient encore Salambo, selon Hésychius ; mais ils ne peuvent point s'être servis de ce terme, qui est grec, et qui tire son origine de στάλα, qui signifie au propre l'agitation de la mer, et au figuré celle de l'âme. De στάλα viennent σαλαΐζειν* se frapper le sein, comme dans le deuil, déplorer une perte. Σαλαΐς des gémissements. Σαλάβη l'agitation de l'âme. « Σαλαμβάς une Déesse ainsi nommée, dit l'Auteur de l'Etymologicum magnum, parce qu'elle va de côté et d'autre pleurant Adonis. Anacréon employé, continue le même Auteur, le mot σαλαΐζειν pour pleurer, déplorer, car une douleur et des gémissements pareils agitent l'âme et la troublent. » Ainsi, Salambo signifie Vénus pleurant la mort d'Adonis.
 
-*) Hésychius [GREEK].
+*) Hésychius Σάλα, ϕροντίς. Σαλαίζειν, κόπτεστθαι. Σαλαΐς, κωκυτός. Σαλάβη, ϕραντίς.
 
 Déléphat était pareillement un nom de Vénus, selon* Selden ; mais Héyschius, de l'autorité de qui il s'appuyé, dit seulement que c'est ainsi que les Chaldéens nommaient l'astre de Vénus.
 
@@ -152,7 +154,7 @@ La Déesse de Syrie passait aussi pour une Vénus ; et il est d'autant plus vrai
 
 *) Hygini Fabulæ 198. Vide Auctores Mythographos Latinos, pag. 327.
 
-Cette Déesse s'appelait Atargatis, suivant Strabon* ; mais si l'on en croit Eratosthène dans ses [GREEK],* elle se nommait Dercéto. Elle tomba, dit-il, pendant la nuit, dans un lac près de Bambyce, (c'est la ville d'Héliopolis, selon Appien de Bello Parthico,* Ælien, de Natura Animalium, Lib. 12. cap. i. _etc._) et fut sauvée par le Grand Poisson. Les Syriens de cette contrée lui donnèrent le nom de Déesse de Syrie. Ce Grand Poisson, dont parle Eratosthène, est celui qu'on dit avaler avec avidité l'eau que répand le verseau. C'est ainsi que s'exprime Théon le Scholiaste d'Aratus* ; mais on lui fait dire : [GREEK] : ce qui ne fait absolument aucun sens. Je lis avec un changement très-léger [GREEK], qui signifie _avaler avec avidité_. Cette correction paraîtra, je crois, indubitable à la savante Académie, qui arrête, par son exemple, les Lettres prêtes à fuir d'un pays où elles ont été si florissantes, et qui en est, si j'ose ainsi m'exprimer, le Jupiter Stateur. Si j'eusse eu à être jugé par des hommes ordinaires, je me serais bien gardé de mettre de la critique dans cette Dissertation ; mais mes Juges sont heureusement convaincus que malgré leurs savantes veilles, il se trouve encore dans la plupart des Auteurs une infinité de passages dont on ne peut dissiper l'obscurité qu'à l'aide du flambeau de la critique. C'est à votre exemple, Messieurs, que je me suis engagé dans ces routes ténébreuses, et si je ne m'y suis point égaré, j'en ai obligation à la lumière de vos doctes écrits.
+Cette Déesse s'appelait Atargatis, suivant Strabon* ; mais si l'on en croit Eratosthène dans ses Κατασττεριστμοί,* elle se nommait Dercéto. Elle tomba, dit-il, pendant la nuit, dans un lac près de Bambyce, (c'est la ville d'Héliopolis, selon Appien de Bello Parthico,* Ælien, de Natura Animalium, Lib. 12. cap. i. _etc._) et fut sauvée par le Grand Poisson. Les Syriens de cette contrée lui donnèrent le nom de Déesse de Syrie. Ce Grand Poisson, dont parle Eratosthène, est celui qu'on dit avaler avec avidité l'eau que répand le verseau. C'est ainsi que s'exprime Théon le Scholiaste d'Aratus* ; mais on lui fait dire : ἰχθὺς ὁ μέγας καλόυμενος, ὃς κάμπτειν λέγεται ὑδωρ ἀπὸ τῆς τὸυ ὑδροχόου χύστεως : ce qui ne fait absolument aucun sens. Je lis avec un changement très-léger κάπτειν, qui signifie _avaler avec avidité_. Cette correction paraîtra, je crois, indubitable à la savante Académie, qui arrête, par son exemple, les Lettres prêtes à fuir d'un pays où elles ont été si florissantes, et qui en est, si j'ose ainsi m'exprimer, le Jupiter Stateur. Si j'eusse eu à être jugé par des hommes ordinaires, je me serais bien gardé de mettre de la critique dans cette Dissertation ; mais mes Juges sont heureusement convaincus que malgré leurs savantes veilles, il se trouve encore dans la plupart des Auteurs une infinité de passages dont on ne peut dissiper l'obscurité qu'à l'aide du flambeau de la critique. C'est à votre exemple, Messieurs, que je me suis engagé dans ces routes ténébreuses, et si je ne m'y suis point égaré, j'en ai obligation à la lumière de vos doctes écrits.
 
 *) Strabo, lib 16. pag. 1085. A.
 
@@ -164,7 +166,7 @@ Cette Déesse s'appelait Atargatis, suivant Strabon* ; mais si l'on en croit Era
 
 *) Ad Arati Phænomena, pag. 50. col. 1. lin. ultimâ.
 
-Revenons à la Déesse de Syrie. Elle n'était pas Vénus elle-même, suivant une tradition rapportée par le Scholiaste d'Aratus,* mais fille de cette Déesse, et n'avait point été sauvée par le Grand Poisson, mais par les Poissons qui en étaient nés, [GREEK]. Je rapporte ce passage en entier, afin de faire voir la nécessité de lire [GREEK] au lieu de [GREEK].
+Revenons à la Déesse de Syrie. Elle n'était pas Vénus elle-même, suivant une tradition rapportée par le Scholiaste d'Aratus,* mais fille de cette Déesse, et n'avait point été sauvée par le Grand Poisson, mais par les Poissons qui en étaient nés, οὗτοι (ἰχθυές) δέ ἐιστιν οἱ τοῦ μεγάλου ἰχθύος ἔκγονοι, περὶ οὗ ἐν τοῖς ἐζῆς ἐρεῖ, ὁίτινες Δέρκην τὴν Αϕροδίτης θυγατέρα ἐμπεστοῦσταν εἰς θάλαστσταν ἔστωσταν. Je rapporte ce passage en entier, afin de faire voir la nécessité de lire Δέρκητην au lieu de Δέρκην.
 
 *) Scholiast. Arati ad Phænomena, pag. 32. Remarquez que cette page est chiffrée 42.
 
