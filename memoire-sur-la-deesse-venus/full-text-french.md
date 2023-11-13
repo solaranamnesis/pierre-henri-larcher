@@ -514,7 +514,7 @@ Il y avait encore à Amathunte un* Temple de Vénus et Adonis, où l'on conserva
 
 Il y avait aussi près d'Amathunte* un bois que l'on appelait le bois de Vénus-Ariadne, parce qu'on y voyait le tombeau de cette Princesse, qui était morte en travail dans l’Isle de Cypre, suivant Pæon l'historien d'Amathunte. On célébrait sa fête le second jour du mois Gorpiæus, qui répond à-peu-près à notre mois de septembre. Un jeune homme, couché sur un lit, imitait alors les paroles et les actions d'une femme en travail.
 
-Cinyras* avait institué des Mystères en l'honneur de Vénus, et l'on présentait aux Initiés du sel, un Phalle, symboles de sa naissance, et les Initiés lui offraient une pièce d'argent, comme à une courtisanne. On s'aperçoit, sans que j'en avertisse, que je lis avec Potter [GREEK]... Le sel faisait allusion à la mer où elle avait été conçue. Le reste n'a pas besoin d'explication. Ces Mystères se célébraient en Cypre, comme nous l'apprend Arnobe* : _nec non Cypriæ Veneris abstrusa illa Initia prætereamus, quorum conditor indicatur Cinyras rex fuisse : in quibus sumentes ea, certas stipes inferunt, ut meretrici, et referunt phallos, propitii numinis signa_. Le sacrifice qu'on lui offrait s'appelait* [GREEK]. Ce mot, qui vient de [GREEK] _fruges_, et qui signifiait probablement dans son origine les prémices des fruits qu'on offrait aux Dieux, se prit dans la suite pour un sacrifice en général, ainsi que le mot [GREEK], comme on le voit dans la Version des Septante.
+Cinyras* avait institué des Mystères en l'honneur de Vénus, et l'on présentait aux Initiés du sel, un Phalle, symboles de sa naissance, et les Initiés lui offraient une pièce d'argent, comme à une courtisanne. On s'aperçoit, sans que j'en avertisse, que je lis avec Potter ἐν ταῖς τελεταῖς ταύτης... Le sel faisait allusion à la mer où elle avait été conçue. Le reste n'a pas besoin d'explication. Ces Mystères se célébraient en Cypre, comme nous l'apprend Arnobe* : _nec non Cypriæ Veneris abstrusa illa Initia prætereamus, quorum conditor indicatur Cinyras rex fuisse : in quibus sumentes ea, certas stipes inferunt, ut meretrici, et referunt phallos, propitii numinis signa_. Le sacrifice qu'on lui offrait s'appelait* Κάρπωσις. Ce mot, qui vient de Καρπὸς _fruges_, et qui signifiait probablement dans son origine les prémices des fruits qu'on offrait aux Dieux, se prit dans la suite pour un sacrifice en général, ainsi que le mot Κάρπωμα, comme on le voit dans la Version des Septante.
 
 *) Diodor. Sicul. lib. 4. §. 65. pag. 309. Nonnus Dionysiacor. lib. 5. vers. 135. etc.
 
@@ -528,7 +528,7 @@ Je finis ce que j'ai à dire sur Amathunte par observer que les premières Court
 
 *) Arnob. adversus Gentes, lib. 5. pag. 169.
 
-*) Hesychius Voc. [GREEK].
+*) Hesychius Voc. κάρπωστις.
 
 *) Ovid. Metamorphos. lib. 10. vets. 238.
  Argos en Cypre n'était remarquable que par le temple d'Apollon Erythius, où Vénus trouva le corps d'Adonis* après sa mort. Elle l'enleva, après avoir fait part de son amour à Apollon. Ce Dieu en eut pitié. Il la conduisit sur le rocher Leucas, d'où il lui conseilla de se précipiter. La Déesse le crut, se précipita du haut du rocher et se trouva guérie.
@@ -541,19 +541,19 @@ Golgos ou Golgi : car ce mot s'écrit des deux manières, ville de Cypre, renomm
 
 *) Meursii Cypr. lib. 1. cap. 11.
 
-*) Stephan. Byzantin. Noc. [GREEK].
+*) Stephan. Byzantin. Noc. γολγοί.
 
 Myricæ était un lieu de l’Isle de Cypre* consacré à Vénus. Peut-être avait-il donné occasion au surnom de Myrica qu'on lui donnait au rapport de Servius ; mais je crois le passage de ce Grammairien altéré, comme je le ferai voir en parlant de Venus Murcia.
 
-*) Hesychius voc. [GREEK].
+*) Hesychius voc. Μυρίκαι.
 
-Il y avait à Salamis un temple de Venus Prospiciens, parce qu'Anaxarete avait été changée en pierre par la Déesse dans le temps qu'elle regardait par la fenêtre. Cette histoire serait trop longue à rapporter. On peut consulter le quatorzième Livre des Métamorphoses d'Ovide depuis le vers 698 jusqu'au 760. Les Grecs l'appelaient en leur langue [GREEK]. Plutarque en parle in Amatorio, pag. 766. D.
+Il y avait à Salamis un temple de Venus Prospiciens, parce qu'Anaxarete avait été changée en pierre par la Déesse dans le temps qu'elle regardait par la fenêtre. Cette histoire serait trop longue à rapporter. On peut consulter le quatorzième Livre des Métamorphoses d'Ovide depuis le vers 698 jusqu'au 760. Les Grecs l'appelaient en leur langue παρακύπτουσα. Plutarque en parle in Amatorio, pag. 766. D.
 
 On voyait à Soles un temple de Vénus, dont il n'est fait mention que dans Strabon.*
 
 *) Strabo. lib. 14. pag. 1002. D.
 
-Près de Carpasie* était l'Olympe, promontoire élevé, avec un temple de Venus Acræa, les promontoires s'appelant en grec [GREEK]. Ce temple avait cela de particulier, que l'entrée et même la vue en étaient interdites aux femmes. Meursius* confond le promontoire Olympe avec le mont Olympe, qui était près de Palæa et d'Amathunte, et attribue à ce mont le temple dont je viens de parler.
+Près de Carpasie* était l'Olympe, promontoire élevé, avec un temple de Venus Acræa, les promontoires s'appelant en grec Ἄκραι. Ce temple avait cela de particulier, que l'entrée et même la vue en étaient interdites aux femmes. Meursius* confond le promontoire Olympe avec le mont Olympe, qui était près de Palæa et d'Amathunte, et attribue à ce mont le temple dont je viens de parler.
 
 *) Idem ibid. pag. 1001. B.
 
@@ -571,7 +571,7 @@ Après avoir dit que les femmes se prostituaient à Babylone une fois en leur vi
 
 *) Arnobius, liv. 5. pag. 143.
 
-Cinyria, ville dont parle* Pline le Naturaliste, était remarquable par le culte d'Uranie. Ce qui a fait dire à Nonnus* qu'elle était la demeure fixe de cette Déesse, [GREEK]. Meursius a oublié de remarquer que Vénus y était adorée.
+Cinyria, ville dont parle* Pline le Naturaliste, était remarquable par le culte d'Uranie. Ce qui a fait dire à Nonnus* qu'elle était la demeure fixe de cette Déesse, Ὀυρανίης πέδον ἕδρης. Meursius a oublié de remarquer que Vénus y était adorée.
 
 Tamasus ou Tamasée, ville chérie de Vénus, comme on le voit par Ovide.* Meursius applique à Amamassus, ville qui n'a jamais eu d'existence que dans des Éditions vicieuses d'Ovide, ce qu'il devait dire de Tamasus.
 
@@ -593,9 +593,9 @@ Le Palais de Vénus,* ouvrage de Vulcain, son mari, était, je crois, à Idalie.
 
 *) Claudian. de Nuptiis Honorii et Mariæ. vers. 49. etc. J'ai traduit librement ce morceau entier de Claudien.
 
-*) Nonnus dit que l'Amour gouverne le Mari de Junon avec la houlette de Vénus : c'est ainsi qu'il appelle l'arc de ce Dieu : [GREEK]. Nonnus Dionysiacorum. lib. 1. vers. 82.
+*) Nonnus dit que l'Amour gouverne le Mari de Junon avec la houlette de Vénus : c'est ainsi qu'il appelle l'arc de ce Dieu : κυπριδίῃ ποίμανε καλαύροπι νυμϕίον Ηρης. Nonnus Dionysiacorum. lib. 1. vers. 82.
 
-*) Philostrate fait mention (Icones, lib. 1. [GREEK]) d'un amour céleste, d'un Uranius qui gouverne les Dieux, et de petits Amours, enfants des Nymphes, qui régissent tout ici-bas.
+*) Philostrate fait mention (Icones, lib. 1. Ερωτες) d'un amour céleste, d'un Uranius qui gouverne les Dieux, et de petits Amours, enfants des Nymphes, qui régissent tout ici-bas.
 
 L'Iunx est un oiseau dont les Anciens se servaient dans leurs enchantements, et surtout dans les philtres. On croit communément que c'est le hochequeue. Les Latins l'appelaient _frutilla_, parce qu'il est consacré à Vénus dont Frutis était un surnom, comme nous le verrons dans la suite. Les enchanteresses l'attachaient à une roue qu'elles tournoient rapidement en chantant des vers magiques. D'autres pensent, dit le Scholiaste* de Pindare, qu'elles n'attachaient point cet oiseau entier à la roue, mais seulement ses entrailles. Quoi qu'il en soit, Vénus* fit connaître la première cette sorte d'enchantement, et en donna des leçons à Jason, oui s'en servit pour fléchir le cœur de Médée. Cette allégorie n'a pas besoin d'explication. Quoique très-sensible, beaucoup d'Anciens ne l'ont point sentie, et croyaient bonnement à la prétendue vertu physique de cet oiseau.
 
@@ -605,9 +605,9 @@ L'Iunx est un oiseau dont les Anciens se servaient dans leurs enchantements, et 
 
 *) Pindari Pythic. 4. vers. 384.
 
-La description précédente est fondée sur la douceur du climat de l’Isle de Cypre, et le culte dont la Déesse était particulièrement honorée à Idalie. On lait qu'il y avait* en ce lieu un promontoire et une colline élevée, avec une petite ville et un bois consacré à Vénus. Meursius a très-bien vu qu'il fallait lire dans le passage de Strabon, [GREEK] au lieu de [GREEK].
+La description précédente est fondée sur la douceur du climat de l’Isle de Cypre, et le culte dont la Déesse était particulièrement honorée à Idalie. On lait qu'il y avait* en ce lieu un promontoire et une colline élevée, avec une petite ville et un bois consacré à Vénus. Meursius a très-bien vu qu'il fallait lire dans le passage de Strabon, ἰδάλιον au lieu de Πηδάλιον.
 
-*) Strabo, lib. 14. pag. 1001. C. Scholiast. Theocriti ad Idyll. 15. vers. 100. Stephanius Byzantinus voc. [GREEK].
+*) Strabo, lib. 14. pag. 1001. C. Scholiast. Theocriti ad Idyll. 15. vers. 100. Stephanius Byzantinus voc. Ἰδάλιον.
 
 C'est au culte de la Déesse que fait allusion Catulle dans ce vers :
 
@@ -615,15 +615,15 @@ _Quæque regis Golgos, quæque Idalium frondosum._  Catull. 63, 96.
 
 Théocrite avait dit auparavant* :
 
-[GREEK].
+Δέσποιν᾽, ἃ Γολγώς τε ὴλ Ἰδάλιον ἐϕίλασας.
 
 « Reine, qui vous plaisez à Golgos et à Idalium. »
 
-Vénus [GREEK], miséricordieuse, était encore adorée en Cypre. Ce surnom lui fut peut-être donné par allusion à quelque histoire qui n'est point venue jusqu'à nous ; ou peut-être parce qu’elle est sensible aux soupirs des amans et qu'elle a pitié de leurs peines. Meursius a oublié cette Vénus, ainsi que beaucoup d'autres. Le Prêtre, qui présidait dans l’Isle aux sacrifices de la Déesse, s'appelait Agétor, [GREEK]. _Voyez_ Hésychius aux mots [GREEK] et [GREEK].
+Vénus Ἐλεήμων, miséricordieuse, était encore adorée en Cypre. Ce surnom lui fut peut-être donné par allusion à quelque histoire qui n'est point venue jusqu'à nous ; ou peut-être parce qu’elle est sensible aux soupirs des amans et qu'elle a pitié de leurs peines. Meursius a oublié cette Vénus, ainsi que beaucoup d'autres. Le Prêtre, qui présidait dans l’Isle aux sacrifices de la Déesse, s'appelait Agétor, Αγήτωρ. _Voyez_ Hésychius aux mots Ἐλεήμων et Αγήτωρ.
 
 *) Théocrit. Idyll. 15. vers. 100.
 
-On la représentait encore dans la même Isle armée d'une pique, et alors elle était connue sous le nom d'[GREEK] hastata, de [GREEK] hasta. [GREEK], dit Hésychius, [GREEK]. Meursius n'a point parlé de cette Vénus, non plus que de la suivante, qui était nue et d'ivoire, et si belle que Pygmalion, qui l'avait faite, en devint amoureux et satisfit avec elle ses désirs effrénés. Clément d'Alexandrie rapporte* ce trait d'après Philostephanus qui avait composé une histoire de Cypre que le sort nous a enviée. Arnobe* raconte aussi la même chose, mais il métamorphose ce Statuaire en un Roi de Cypre. Les habitants de cette Isle avoient un mois qu'ils nommaient* Aphrodisius. Cela n'est point étonnant de la part d'un peuple si adonné au culte de Vénus.
+On la représentait encore dans la même Isle armée d'une pique, et alors elle était connue sous le nom d'Ἔγχειος hastata, de Ἔγχος hasta. Ἔγχειος, dit Hésychius, Αϕροδιτη Κύπριοι. Meursius n'a point parlé de cette Vénus, non plus que de la suivante, qui était nue et d'ivoire, et si belle que Pygmalion, qui l'avait faite, en devint amoureux et satisfit avec elle ses désirs effrénés. Clément d'Alexandrie rapporte* ce trait d'après Philostephanus qui avait composé une histoire de Cypre que le sort nous a enviée. Arnobe* raconte aussi la même chose, mais il métamorphose ce Statuaire en un Roi de Cypre. Les habitants de cette Isle avoient un mois qu'ils nommaient* Aphrodisius. Cela n'est point étonnant de la part d'un peuple si adonné au culte de Vénus.
 
 *) Clemens Alexandrin. in Protreptico, pag. 50. lin. 41 et pag. 51.
 
@@ -637,15 +637,22 @@ Les traditions, sur le lieu où Vénus était abordée au sortir de l'élément 
 
 *) Nonnus Dionysiacorum, l. 41. 5. 107-117.
 
-[GREEK].
+Οὐ Πάϕον, οὐκ ἐπὶ Βύβλον ἀνέδραμεν, οὗ  
+πόδα χέρστῳ  
+Κωλιάδος ρηγμῖνος ἐϕήρμοσεν, ἀλλὰ ὴλ ἀυτῶν  
+Ὠκυτέρῃ στροϕάλιγγι παρέτρεχεν ἄστυ Κυθήρων.
+...  
+Καὶ Βερόης ἐπεβη, νεπόδων δ᾽ ἐπίβατρα θεαίνης  
+Ἐξ ἁλὸς ἐρχομένης ναέτης ἐψεύσατο Κύπρου.
 
-[GREEK].
-
-L'avant dernier vers est étrangement altéré.* Les mots [GREEK] ne font absolument aucun sens. Je les change en [GREEK] par un théta.
+L'avant dernier vers est étrangement altéré.* Les mots νεπόδων δ᾽ ἐπιβατρα ne font absolument aucun sens. Je les change en Κύπρον δἐπιβαθρα par un théta.
 
 Tout devient alors clair. « Vénus arrive à Béroë, et c'est faussement que l'habitant de Cypre dit que cette Isle fut l'abord de la Déesse au sortir de la mer. » Ma conjecture, quoique hardie, n'en est pas moins certaine. Il est impossible que Nonnus se soit exprimé autrement.
 
-*) Le texte des Dionysiaques est prodigieusement corrompu. C'est l'étable d'Augée. Les conjectures de Falkenburgh sont peu de chose, et la traduction latine de Lubin est absurde. En voici un exemple. Livre 41. vers 281. [GREEK]. Lubin, ne s'étant pas douté que le texte fut altéré, a traduit : _et dolum liberabant circularem imaginem mundi famulæ hinc et hinc_. Il faudrait être plus qu'Œdipe pour entendre ce latin. Un Traducteur, même borné, se serait aperçu que le texte était corrompu, et s'il ne se fût point senti assez fort pour le corriger, il en aurait averti par une étoile plutôt que de traduire d'une manière aussi absurde. La correction était facile. Il fallait seulement séparer [GREEK] en deux, et écrire [GREEK], etc. Le sens est alors clair. « Des femmes, dit Nonnus, dispersées de côté et d'autre, gardaient toute l'enceinte du palais d'Harmonie, image du monde. » Mais au livre 42. vers 1. il fallait, au contraire, de deux mots n'en faire qu'un.  [GREEK].  La version _vetusto calceo_ est ridicule. Il faut lire en un seul mot [GREEK] _sublimibus vero talaribus_ avec sa chaussure ailée.
+*) Le texte des Dionysiaques est prodigieusement corrompu. C'est l'étable d'Augée. Les conjectures de Falkenburgh sont peu de chose, et la traduction latine de Lubin est absurde. En voici un exemple. Livre 41. vers 281. καὶ δόλον ἔῤῥύοντο περίτροχον ἐικόνα κόστμου δμωΐ δες ἔνθα καὶ ἔνθα. Lubin, ne s'étant pas douté que le texte fut altéré, a traduit : _et dolum liberabant circularem imaginem mundi famulæ hinc et hinc_. Il faudrait être plus qu'Œdipe pour entendre ce latin. Un Traducteur, même borné, se serait aperçu que le texte était corrompu, et s'il ne se fût point senti assez fort pour le corriger, il en aurait averti par une étoile plutôt que de traduire d'une manière aussi absurde. La correction était facile. Il fallait seulement séparer δόλον en deux, et écrire δ᾿ ὅλον, _etc._ Le sens est alors clair. « Des femmes, dit Nonnus, dispersées de côté et d'autre, gardaient toute l'enceinte du palais d'Harmonie, image du monde. » Mais au livre 42. vers 1. il fallait, au contraire, de deux mots n'en faire qu'un.  
+ὡς ϕαμένη παρέπειστε, μετὰ χρονίῳ δὲ πεδίλῳ  
+θερμὸς Ἒρως ἀκίχητος ὑπηνέμῒον πόδα πάλλων.  
+La version _vetusto calceo_ est ridicule. Il faut lire en un seul mot μεταχρονίῳ δὲ πεδίλῳ _sublimibus vero talaribus_ avec sa chaussure ailée.
 
 La prédilection de Vénus pour Béroë n'a rien de surprenant. Je ne parlerai, ni de l'ancienneté de cette ville, ni de son origine que Nonnus* fait remonter avant celle des Arcadiens, quoiqu'ils se vantassent d'être antérieurs à la Lune. Je ne dirai pas non plus avec cet Auteur qu'elle fut la première ville qui parut après le débrouillement du Cahos. Mais je ferai remarquer* la fertilité de son territoire, des prairies toujours émaillées de fleurs, des ruisseaux qui portent partout l'abondance, des bocages de palmiers et d'oliviers, des collines couronnées de pampres, des terres couvertes des dons de Cérès, et un printemps perpétuel.
 
@@ -665,7 +672,7 @@ Béroë, avant que d'être une ville, était une Nymphe, fille de l'Océan* et d
 
 *) Idem ibid. vers. 155, etc.
 
-*) Idem ibid. vers. 165. etc. Cette idée est ingénieuse, quoiqu'elle pêche par l'ordre des temps. Qu'on ne s'imagine pas que les Lois de Solon fussent alors écrites sur des rouleaux _volumina_ comme les livres anciens l'ont été depuis. Elles l'étaient sûr de grandes planches carrées ou triangulaires, selon quelques auteurs, appliquées sur un ouvrage en brique, de la grandeur d'un homme, et que l'Ecrivain faisait mouvoir à volonté par le moyen de boulons placés de l'un et de l'autre côté. [GREEK]. Je rapporte ce passage en entier afin de faire sentir la nécessité de lire [GREEK] _des boulons_. Car à quoi auraient pu servir _des roseaux_ [GREEK]. Il faut encore rendre le même terme à l'Auteur de l'Etymologicum Magnum, an mot [GREEK], et lire [GREEK] au lien de [GREEK]. Vitruve a employé le mot Cnodax en pareille occasion. On peut consulter Saumaise _de Modo Usurar._ pag. 102. On appelait ces planches [GREEK] et [GREEK]. Voyez l'Etymologicum Magnum, au mot [GREEK]. Ces Lois étaient écrites [GREEK], de la manière dont les bœufs forment les sillons, c'est-à-dire, de la gauche à la droite et ensuite de la droite à la gauche. Voyez le Lexique d'Harpocration, au mot : [GREEK].
+*) Idem ibid. vers. 165. etc. Cette idée est ingénieuse, quoiqu'elle pêche par l'ordre des temps. Qu'on ne s'imagine pas que les Lois de Solon fussent alors écrites sur des rouleaux _volumina_ comme les livres anciens l'ont été depuis. Elles l'étaient sûr de grandes planches carrées ou triangulaires, selon quelques auteurs, appliquées sur un ouvrage en brique, de la grandeur d'un homme, et que l'Ecrivain faisait mouvoir à volonté par le moyen de boulons placés de l'un et de l'autre côté. ἑκατέρωθεν δὲ δόνακας, ὥσττε κινειστθαι, καὶ περιϕέρεστθαι ὑπὸ τοῦ γράϕοντος. Je rapporte ce passage en entier afin de faire sentir la nécessité de lire κνώδακας _des boulons_. Car à quoi auraient pu servir _des roseaux_ δόνακες. Il faut encore rendre le même terme à l'Auteur de l'Etymologicum Magnum, an mot Αξονες, et lire κνώδαξι au lien de κώδιξι. Vitruve a employé le mot Cnodax en pareille occasion. On peut consulter Saumaise _de Modo Usurar._ pag. 102. On appelait ces planches Αξονες et κύρβεις. Voyez l'Etymologicum Magnum, au mot κύρβεις. Ces Lois étaient écrites Βουσττροϕηδόν, de la manière dont les bœufs forment les sillons, c'est-à-dire, de la gauche à la droite et ensuite de la droite à la gauche. Voyez le Lexique d'Harpocration, au mot : ὀ κάτωθεν νόμος.
 
 Après m'être étendu sur la Vénus Céleste des Orientaux autant que l'exigeait mon sujet, passons à celle des Grecs. Ces peuples ci tenaient leurs dieux des Barbares. Hérodote le dit positivement.* La plupart de ces Dieux leur avoient été donnés par les Egyptiens ; ils en avoient reçu des Libyens et des Pélasges, et l'on ne peut douter que les Phéniciens n'aient introduit les leurs dans les pays où ils s'établirent. Il n'y a pas d'apparence que les Grecs aient connu Vénus avant l'arrivée de Cadmus. On voyait à Thèbes* une statue de Vénus-Uranie si ancienne, qu'on la croyait une offrande d'Harmonie, fille de Cadmus. Les Thébains prétendaient qu'elle avait été faite des éperons des navires qui avoient amené Cadmus. Harmonie imposa elle-même ce nom à cette Vénus, dit Pausanias, afin d'exprimer son amour honnête et dégagé des sens. Le culte de la Déesse n'avait donc pas encore dégénéré en Orient, ou du moins la dépravation n'était pas universelle.
 
@@ -673,15 +680,15 @@ Après m'être étendu sur la Vénus Céleste des Orientaux autant que l'exigeai
 
 *) Pausanias Bæotic. lib. 9. cap. 16. pag. 742.
 
-Cadmus avait sans doute beaucoup de vénération pour Vénus, puisqu'il lui dédia la troisième Porte de Thèbes : [GREEK].* Ce devrait être la Porte Ogygie, suivant l'énumération d'Euripide* ; mais d'autres Auteurs placent ces Portes dans un ordre différent. Si nous avions l'ouvrage d'Aristodeme de Thèbes sur tout ce qui regardait* cette ville, nous saurions à quoi nous en tenir.
+Cadmus avait sans doute beaucoup de vénération pour Vénus, puisqu'il lui dédia la troisième Porte de Thèbes : πόρε τριτὰτην Αϕροδιτῃ.* Ce devrait être la Porte Ogygie, suivant l'énumération d'Euripide* ; mais d'autres Auteurs placent ces Portes dans un ordre différent. Si nous avions l'ouvrage d'Aristodeme de Thèbes sur tout ce qui regardait* cette ville, nous saurions à quoi nous en tenir.
 
 *) Nonnus Dionysiacor. lib. 5. vers. 80.
 
 *) Euriplde Phœniss. vers. 1120.
 
-*) Suidas voc. [GREEK].
+*) Suidas voc. Ὀμολώῒος Ζεύς.
 
-On voyait à Cythere un temple* d'Uranie très-respecté et le plus ancien que la Déesse ait eu en Grèce. Sa Statue la représentait armée. De cette Isle elle prenait le nom de [GREEK]* Cythérée, ou, parce que les amans se cachent et agissent en secret, comme le dit le Scholiaste d'Hésiode sur le vers 196 de la Théogonie, ou, parce qu'elle cache les amans, comme on le voit dans Eustathe* sur Homère, ou, comme il n'y a rien de si incertain que la science des Etymologies, à cause de l'imprégnation, dit Phurnutus,* qui est la suite de l'union des deux sexes, [GREEK]. On peut encore voir d'autres étymologies dans l'Etymologicum Magnum aux mots [GREEK] et [GREEK] ; mais je crois devoir m'y arrêter d'autant moins qu'elles sont la plupart trop recherchées, et qu'il est inutile d'en charger cette Dissertation.
+On voyait à Cythere un temple* d'Uranie très-respecté et le plus ancien que la Déesse ait eu en Grèce. Sa Statue la représentait armée. De cette Isle elle prenait le nom de Κυθέρεια Cythérée,* ou, parce que les amans se cachent et agissent en secret, comme le dit le Scholiaste d'Hésiode sur le vers 196 de la Théogonie, ou, parce qu'elle cache les amans, comme on le voit dans Eustathe* sur Homère, ou, comme il n'y a rien de si incertain que la science des Etymologies, à cause de l'imprégnation, dit Phurnutus,* qui est la suite de l'union des deux sexes, [GREEK]. On peut encore voir d'autres étymologies dans l'Etymologicum Magnum aux mots [GREEK] et [GREEK] ; mais je crois devoir m'y arrêter d'autant moins qu'elles sont la plupart trop recherchées, et qu'il est inutile d'en charger cette Dissertation.
 
 *) Pausanias Laconic. sive lib. 3. cap. 23. pag. 269.
 
