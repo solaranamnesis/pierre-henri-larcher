@@ -3188,18 +3188,18 @@ Si l'on en croit encore le même* Phurnutus, on se gardait bien d'offrir du buis
 
 *) Idem ibidem.
 
-Mais après y avoir bien réfléchi, j'ai reconnu que les Manuscrits avoient conservé la vraie leçon, si l'on excepte [GREEK] qu'il faut changer en [GREEK]. Ceux qui se sont familiarisés avec les Manuscrits, savent que l'Oméga est souvent confondu avec un Omicron suivi d'un Iota, et que l'Iota s'écrit à côté au lieu d'être souscrit, ce qui a donné bien des fois occasion de le prendre pour un Sigma. Je lis donc : [GREEK]. « On se garde bien d'offrir à la Déesse du buis, parce qu'on a, en quelque sorte, en horreur les plaisirs contraires à la nature renfermés dans ce mot. » M. de Villoison,* dont les connaissances devancent de beaucoup les années, et qui a une sagacité singulière pour restituer les passages les plus désespérés, avait bien vu qu'il fallait lire avec les Manuscrits [GREEK]. Ainsi, il n'y a dans cette correction que [GREEK] qui soit à moi.
+Mais après y avoir bien réfléchi, j'ai reconnu que les Manuscrits avoient conservé la vraie leçon, si l'on excepte ἐπ᾽ αὐτοῖς qu'il faut changer en ἐπ᾽ αυτῷ. Ceux qui se sont familiarisés avec les Manuscrits, savent que l'Oméga est souvent confondu avec un Omicron suivi d'un Iota, et que l'Iota s'écrit à côté au lieu d'être souscrit, ce qui a donné bien des fois occasion de le prendre pour un Sigma. Je lis donc : τὸν δὲ πύξον ϕυλάττονται τῇ Θεῷ προστϕέρειν, ἀϕοστιούμενοί πως ἐπ᾿ ἀυτῷ τὴν πυγήν. « On se garde bien d'offrir à la Déesse du buis, parce qu'on a, en quelque sorte, en horreur les plaisirs contraires à la nature renfermés dans ce mot. » M. de Villoison,* dont les connaissances devancent de beaucoup les années, et qui a une sagacité singulière pour restituer les passages les plus désespérés, avait bien vu qu'il fallait lire avec les Manuscrits ἀϕοστιούμενοί πως... τὴν πυγήν. Ainsi, il n'y a dans cette correction que ἐπ᾿ ἀυτῷ qui soit à moi.
 
 *) Cette phrase a été ajoutée après que le Prix m'a été adjugé.
 
-Cette Leçon paraîtra certaine, si l'on fait attention qu'il n'est presque question dans ce Chapitre de Phurnutus que de jeux de mots. On consacrait à Vénus le Philyra, parce que ce mot comprenait [GREEK] aimer, y et l'on écartait le buis de ses autels, parce que dans [GREEK] _buis_, était renfermé [GREEK] _nates_ deux mots dont l'origine est commune. _Voyez_ Eustathe sur Homère, _page_ 1322. ligne 38.
+Cette Leçon paraîtra certaine, si l'on fait attention qu'il n'est presque question dans ce Chapitre de Phurnutus que de jeux de mots. On consacrait à Vénus le Philyra, parce que ce mot comprenait ϕίλεῖν aimer, y et l'on écartait le buis de ses autels, parce que dans πύξος _buis_, était renfermé πυγὴ _nates_ deux mots dont l'origine est commune. _Voyez_ Eustathe sur Homère, _page_ 1322. ligne 38.
 
 Si le savant Alciat se fût rappelé ce passage de Phurnutus, il n'aurait point dit de cet arbrisseau, _Emblem._ 207.
 
 _Deliciis apta est, teneris et amantibus arbor :_  
 _Pallor inest illi, pallet et omnis amans._
 
-Le Lys était odieux à Vénus,* parce qu'il lui disputait la beauté. Aussi pour s'en venger, fit-elle croître au milieu de ses pétales le membre de l'âne. Nicandre entendait sans doute les pistiles avec les sommets qui s'élèvent du fond du calyce. Je me rappelle cependant qu'un autre Poète nomme cette fleur les délices de Vénus [GREEK]. Mais ayant oublié d'en faire la remarque, je n'ai pu retrouver ce passage, et vérifier si ma mémoire ne me trompe point.
+Le Lys était odieux à Vénus,* parce qu'il lui disputait la beauté. Aussi pour s'en venger, fit-elle croître au milieu de ses pétales le membre de l'âne. Nicandre entendait sans doute les pistiles avec les sommets qui s'élèvent du fond du calyce. Je me rappelle cependant qu'un autre Poète nomme cette fleur les délices de Vénus Χάρμα. Mais ayant oublié d'en faire la remarque, je n'ai pu retrouver ce passage, et vérifier si ma mémoire ne me trompe point.
 
 *) Nicandri Alexipharmac. vers. 406. _etc._
 
@@ -3261,7 +3261,7 @@ Dans une Epigramme d'Antipater de Sidon,* Bitinne consacre à Vénus-Uranie une 
 
 *) Ibidem pag. 25.
 
-Dans une autre Epigramme de Leonidas de Tarente,* Callicratia dédie à Vénus un Amour d'argent, un miroir, des cheveux postiches, un peigne et la bande transparente qui retenait son sein [GREEK]* : car c'est ainsi qu'il faut lire au lieu de [GREEK], qui ne devait point embarrasser feu M. Reiske. On en lit une autre de Philétas de Samos,* où Nicias, âgée de cinquante ans et plus, suspend dans le Temple de Vénus sa chaussure, son miroir et sa ceinture.
+Dans une autre Epigramme de Leonidas de Tarente,* Callicratia dédie à Vénus un Amour d'argent, un miroir, des cheveux postiches, un peigne et la bande transparente qui retenait son sein Μηλουχον ὑαλόχρια* : car c'est ainsi qu'il faut lire au lieu de Μελοῦχον, qui ne devait point embarrasser feu M. Reiske. On en lit une autre de Philétas de Samos,* où Nicias, âgée de cinquante ans et plus, suspend dans le Temple de Vénus sa chaussure, son miroir et sa ceinture.
 
 *) Ibidem pag. 26.
 
@@ -3279,7 +3279,7 @@ Vénus eut de Jupiter l'Amour,* de Dionysus Bacchus,* de Bacchus Priape* ; les A
 
 *) Lactant. de Falsâ Religione lib. 1. §. 17 p. 92.
 
-*) Hesychius voc. [GREEK].
+*) Hesychius voc. Βάκχου Διώνης.
 
 *) Diodor. Sicul. lib. 4. §. 6. tom. 1. pag. 251.
 
@@ -3297,15 +3297,15 @@ Vénus eut de Jupiter l'Amour,* de Dionysus Bacchus,* de Bacchus Priape* ; les A
 
 *) Nonnus Dionysiacor. lib. 13. vers. 408.
 
-Cette Harmonie était belle comme sa mère ; les Matelots, qui étaient sur le vaisseau où elle se trouvait, la prennent pour Vénus, lui adressent leurs vœux, et la prient de leur envoyer un vent favorable : [GREEK].* Mais Lubin, qui a estropié, plutôt que traduit, les Dionysiaques de Nonnus, a rendu ce vers : _mitte mihi humidam pluviam_.
+Cette Harmonie était belle comme sa mère ; les Matelots, qui étaient sur le vaisseau où elle se trouvait, la prennent pour Vénus, lui adressent leurs vœux, et la prient de leur envoyer un vent favorable : πέμπε μοι ἴκμενον οὖρον.* Mais Lubin, qui a estropié, plutôt que traduit, les Dionysiaques de Nonnus, a rendu ce vers : _mitte mihi humidam pluviam_.
 
 *) Idem Ibidem. lib. 4. vers. 246.
 
 La mère des Amours se plaît à unir les cœurs, le Dieu de la Guerre à les diviser ; Vénus aime les jeux, les ris, la danse et tout ce qui inspire la gaieté ; Mars au contraire ne respire que le trouble, le sang, le carnage. Par quelle fatalité des Dieux, qui devraient avoir l'un pour l'autre le plus grand éloignement, s'unissent-ils ? Et comment Harmonie, la douce Harmonie est-elle le fruit de leur amour ? Les Anciens auraient-ils voulu dire que l'Amour subjugue les cœurs les plus féroces ? _fà spesso cader a Marte la sanguignosa spada_ ; cela peut être. Je suis cependant tenté de croire qu'ils couvraient de ce voile ingénieux leur système sur la production des êtres. Tel est le sentiment de de grand nombre d'Anciens très-instruits. J'ignore s'il a été adopté par quelque Moderne. Quoi qu'il en soit, tâchons de le développer en peu de mots.
 
-La matière était éternelle, selon les Anciens. Rien* ne s'était fait de rien, et rien ne pouvait être anéanti. La naissance, suivant ce système, était, non le passage du non-être à l'être, mais le passage de l'Adès,* c'est-à-dire, d'un état invisible et nullement soumis aux sens, à un état visible et sensible. Car [GREEK] est une contraction de [GREEK] et vient de l'Alpha privatif et de [GREEK], _je vois_. Delà vient que dans Homère, Minerve, voulant se rendre invisible à Mars, se couvre la tête du casque de Pluton, [GREEK]. Iliad. E. 845.
+La matière était éternelle, selon les Anciens. Rien* ne s'était fait de rien, et rien ne pouvait être anéanti. La naissance, suivant ce système, était, non le passage du non-être à l'être, mais le passage de l'Adès,* c'est-à-dire, d'un état invisible et nullement soumis aux sens, à un état visible et sensible. Car Ἅδης est une contraction de Αῒδὴς et vient de l'Alpha privatif et de Ἔιδω, _je vois_. Delà vient que dans Homère, Minerve, voulant se rendre invisible à Mars, se couvre la tête du casque de Pluton, δῦν᾽ Ἀίδος Κυνέην, μὴ μιν ἴδοι ὄβριμος Ἄρης. Iliad. E. 845.
 
-*) [GREEK]. Hippocrat. de Diætâ, lib. 1. § 5.
+*) Ἀπόλλυται μὲν ὀυδὲν ἁπάντων χρημάτων, ὀυδὲγίνεται, ὅ, τι μὴ καὶ πρόσθενἦν. Hippocrat. de Diætâ, lib. 1. § 5.
 
 *) On dit aussi Hadès, avec une aspiration. Ce mot signifie Pluton, Enfer _etc._
 
@@ -3313,15 +3313,17 @@ Les corps, ou si l'on veut, les différentes formes, sont produits par le mélan
 
 *) Ce passage d'Hippocrate est altéré dans l'original, je l'ai rétabli plus haut, pag. 88 _etc._ et l'ai traduit en conséquence.
 
-*) [GREEK]. Plutarch. de Iside et Osiride, p. 369 B.
+*) Παλίντροπος ἀρμονία Κόσμου ὥσπερ λύρης... κατ᾽ Ἡράκλειτον. Plutarch. de Iside et Osiride, p. 369 B.
 
 Il est aisé d'expliquer d'après ces principes, les amours de Mars et de Vénus, et la naissance d'Harmonie, fruit de ces amours. « Suivant les Mythologues, dit Plutarque,* Harmonie nait de Mars et de Vénus, le premier cruel, et aimant les querelles, l'autre douce et aimable. Les Philosophes sont d'accord avec eux. Car Héraclite nomme ouvertement la Guerre, le Père, le Roi, le Seigneur de toutes choses, et ce Philosophe ajoute, qu'en formant des vœux, pour que la Discorde fût bannie du séjour des Dieux et des Hommes, Homère faisait, sans s'en douter, des imprécations contre l'origine de tout, puisque toutes choses doivent leur existence à cette guerre et à cette dissension. »
 
-*) [GREEK]. Plutarch. de Iside et Osiride pag. 370 C. et D.
+*) Ἐκ δὲ Ἀϕροδίτης κὰι Ἁρεως Αρμονίαν γεγονέναι μυϕολογοῦνται, ὧν ὁ μὲν ἀπηνὴς καὶ ϕιλόνεικος, ἡ δὲ μειλίχος, καὶ γενέθλιος. Σκόπει δὲ ποὺς ϕιλοσόϕους τούτοις στυμϕερομένους. Ἡράκλειτος μὲν γὰρ ἄντικρυς Πόλεμον ὀνομάζει πατέρα καὶ βασιλέα, καὶ κύριον πάντων, καὶ τὸν μὲν Ὄμηρον ἐυχόμενον  
+Ἔκτε θεῶν Ἔριν, ἔκ τ᾽ ᾶνθρώπων ἀπολέσθαι.  
+λανθάνειν ϕησὶ τᾖ πάντων γενέσει καταρώμενον, ἐκ μάχης καὶ ἀντιπαθείας την γενέσιν ἐχόντων. Plutarch. de Iside et Osiride pag. 370 C. et D.
 
-C'est ce qu'avait dit Empédocle en d'autres termes, lorsqu'après avoir parlé des quatre éléments,* le feu, l'eau, la terre et l'air, il ajoute que « l'amitié est le lien qui les unit, et la discorde ce qui les désunit. » Il ne faut point croire cependant que ce Philosophe se soit servi de termes vagues, ou n'ayant aucun sens. Il entendait par celui d'_amitié_ le juste mélange des deux principes contraires qui fait qu'un corps existe, et par celui de _discorde_, la prédominance de l'un ou l'autre de ces deux principes. Ce que je dis des deux principes qui composent tous les corps ne contredit point le passage que je viens de citer d'Empédocle, par où il paraît qu'il y avait selon lui quatre éléments. Car, Héraclite et beaucoup d'autres Philosophes n'admettaient d'autre principe que le feu.* Cet élément condensé s'humectait, et étant épaissi devenait eau, l'eau coagulée se changeait en terre : [GREEK]. On voit que Diogene Laerce a oublié l'air, quoique Héraclite l'admette, comme on peut le voir dans Plutarque _de Placitis Philosophorum, Lib. 1. Cap. 3._ Ce passage est donc corrompu. Que veut dire en effet, le feu condensé _devient humide_ ? Je mets donc en la place de [GREEK], je répete [GREEK] qui a été omis, et je lis le passage entier : [GREEK]. Le feu condensé devient air, l'air épaissi devient eau, et l'eau coagulée se change en terre.
+C'est ce qu'avait dit Empédocle en d'autres termes, lorsqu'après avoir parlé des quatre éléments,* le feu, l'eau, la terre et l'air, il ajoute que « l'amitié est le lien qui les unit, et la discorde ce qui les désunit. » Il ne faut point croire cependant que ce Philosophe se soit servi de termes vagues, ou n'ayant aucun sens. Il entendait par celui d'_amitié_ le juste mélange des deux principes contraires qui fait qu'un corps existe, et par celui de _discorde_, la prédominance de l'un ou l'autre de ces deux principes. Ce que je dis des deux principes qui composent tous les corps ne contredit point le passage que je viens de citer d'Empédocle, par où il paraît qu'il y avait selon lui quatre éléments. Car, Héraclite et beaucoup d'autres Philosophes n'admettaient d'autre principe que le feu.* Cet élément condensé s'humectait, et étant épaissi devenait eau, l'eau coagulée se changeait en terre : πυκνούμενον γάρ τὸ πῦρ ἐξυγραίνεσθαι, συνιστάμενόν, τε γίνεσθαι ὕδιωρ · πηγνύμενον δὲ τὸ ὕδωρ ἐις γὴν τρέπεσθαι. On voit que Diogene Laerce a oublié l'air, quoique Héraclite l'admette, comme on peut le voir dans Plutarque _de Placitis Philosophorum, Lib. 1. Cap. 3._ Ce passage est donc corrompu. Que veut dire en effet, le feu condensé _devient humide_ ? Je mets donc en la place de Ἐξυγραίνεσθαι : ἀέρα γίνεσθαι, je répete ἀέρα qui a été omis, et je lis le passage entier : πυκνούμενον γὰρ τὸ πῦρ ἀέρα γίνεσθαι, συνιστάμενόν τε τὸν ἀέρα ὕδωρ · πηγνύμενον δὲ τὸ ὕδωρεἰς γὴν τρέπεσθαι. Le feu condensé devient air, l'air épaissi devient eau, et l'eau coagulée se change en terre.
 
-*) [GREEK]. Diogen. Laert. lib. 8. Segment. 76.
+*) Στοιχεια μὲν εἶναι τέτταρα, πῦρ, ὕδωρ, γὴν, ἀέρα. ϕιλίαντε ῇ συγκρίνεται, καὶ νεικος ᾧ διακρίνεται. Diogen. Laert. lib. 8. Segment. 76.
 
 *) Diogen. Laert. lib. 9. Segment. 9.
 
@@ -3352,7 +3354,7 @@ Cérès était son amie et sa parente : _suscipit Ceres : tuis quidem lacrymosis
 
 *) Apul. Metamorphos. lib. 6. pag. 175.
 
-Dionysus était frère de Vénus, suivant Nonnus,* et de son commerce avec cette Déesse, il eut Bacchus. _Voyez_ Orphée Hymn. 56, vers 3 et 4. ; Hésychius au mot [GREEK]. Praxilla de Sicyone fait aussi Bacchus fils de Vénus, Hésychius _ibidem_. Mais il est bon de remarquer que Nonnus ne met point de distinction, comme Orphée, entre Dionysus et Bacchus. Si vous ôtez l'autorité de Praxilla, les autres sont de peu de poids. Quoi qu'il en soit, ce Dieu se plaisait beaucoup avec Vénus, et cette Déesse lui avait fait présent* d'un cratère d'or, ouvrage de Vulcain. On connait le proverbe rapporté par Térence,* _sine Cerere et Libero friget Venus_ ; et même l'on sacrifiait à Vénus et à Bacchus, comme le dit Phurnutus,* parce que le vin excite aux plaisirs de l'amour. [GREEK]. Je rapporte ce passage en entier, afin d'avoir occasion de le corriger. [GREEK] ne faisant aucun sens, je lis en la place [GREEK]. Je crois cette correction indubitable ; cependant on pourrait lire avec un Manuscrit [GREEK]. C'est par cette raison qu'elle est appelée [GREEK] aimant le vin pur, dans Nonnus* et qu'Euripides,* dit que sans vin il n'y a point de Vénus. Apulée* nomme ce Dieu _Veneris Armiger_, et Aristophane dit, au rapport d'Athénée,* que le vin est le lait de Vénus.
+Dionysus était frère de Vénus, suivant Nonnus,* et de son commerce avec cette Déesse, il eut Bacchus. _Voyez_ Orphée Hymn. 56, vers 3 et 4. ; Hésychius au mot Βάκχου Διώνης. Praxilla de Sicyone fait aussi Bacchus fils de Vénus, Hésychius _ibidem_. Mais il est bon de remarquer que Nonnus ne met point de distinction, comme Orphée, entre Dionysus et Bacchus. Si vous ôtez l'autorité de Praxilla, les autres sont de peu de poids. Quoi qu'il en soit, ce Dieu se plaisait beaucoup avec Vénus, et cette Déesse lui avait fait présent* d'un cratère d'or, ouvrage de Vulcain. On connait le proverbe rapporté par Térence,* _sine Cerere et Libero friget Venus_ ; et même l'on sacrifiait à Vénus et à Bacchus, comme le dit Phurnutus,* parce que le vin excite aux plaisirs de l'amour. Κινητικὸν γὰρ πρὸς συνουσίαν ὁ οἶνος · Διὰ τοῦτο ἐνίων κοινῇ μεθύοντων Διονύσῳ καὶ Ἀϕροδίτῃ. Je rapporte ce passage en entier, afin d'avoir occasion de le corriger. Μεθύοντων ne faisant aucun sens, je lis en la place μὲν θύοντων. Je crois cette correction indubitable ; cependant on pourrait lire avec un Manuscrit διὰ τοῦτο ἔνιοι κοινῇ θύουσι Κ. Τ. Λ. C'est par cette raison qu'elle est appelée Φιλάκρητος aimant le vin pur, dans Nonnus* et qu'Euripides,* dit que sans vin il n'y a point de Vénus. Apulée* nomme ce Dieu _Veneris Armiger_, et Aristophane dit, au rapport d'Athénée,* que le vin est le lait de Vénus.
 
 *) Nonnus Dionysiacor. lib. 19. vers. 122. lib. 29. vers. 83.
 
@@ -3370,7 +3372,7 @@ Dionysus était frère de Vénus, suivant Nonnus,* et de son commerce avec cette
 
 *) Athen. Deipnosoph. lib. 1. cap. 12. p. 444 D.
 
-Orphée appelle* Vénus [GREEK] _adsessor_ de Bacchus, [GREEK], vénérable Assesseur de Bacchus. Anacréon donne aussi* à ce Dieu les mêmes mœurs qu'à l'Amour, et en fait l'amant de Vénus et le père des Grâces. L'allégorie est claire, et ce serait faire injure à mes Juges que de m'arrêter à l'expliquer.
+Orphée appelle* Vénus Πάρεδρος _adsessor_ de Bacchus, Σεμνὴ Βάκχοιο Πάρεδρε, vénérable Assesseur de Bacchus. Anacréon donne aussi* à ce Dieu les mêmes mœurs qu'à l'Amour, et en fait l'amant de Vénus et le père des Grâces. L'allégorie est claire, et ce serait faire injure à mes Juges que de m'arrêter à l'expliquer.
 
 *) Orph. Hymn. 54 vers. 7.
 
@@ -3392,7 +3394,7 @@ Les Jeux, les Amours ne la quittent point,* _quam Jocus circumvolat et Cupido_ :
 
 *) Vitruvius lib. 2. cap. 8.
 
-Ces Dieux s'appelaient [GREEK], parce qu'ils étaient adorés dans les mêmes Temples ; [GREEK], parce qu'ils participaient aux mêmes Autels ; [GREEK], parce qu'ils étaient assis l'un à côté de l'autre ; les Dieux, en effet, étaient souvent représentés assis ; témoin la critique que fit l'Architecte Apollodore de la grandeur des Statues placées dans le Temple de Vénus et de Rome. _Voyez_ ce que j'en ai dit, _page_ 245. [GREEK] pourrait aussi signifier des Dieux dont les Statues sont près l'une de l'autre ; car [GREEK] signifie des Statues dans Eschyle* et ailleurs. Cependant on n'entendait communément par ce mot que l'égale autorité dont jouissaient ces Dieux. Aussi Gisbert Cuper* et Ezechiel Spanheim* me semblent avoir eu tort de prétendre que les Dieux [GREEK] ou _Adsessores_ étaient d'un rang inférieur, tandis que les Dieux [GREEK] étaient égaux en dignité. Pindare appelle Bacchus [GREEK] de Cérès. Quand vous engendrâtes, dit ce Poète,* Bacchus à la longue chevelure, _qui est assis_ auprès de Cérès. Vénus et la Déesse Rome* étaient des Dieux [GREEK] ou adorés dans le même Temple. Mars et Vénus l'étaient aussi : _sex pulvinaria in conspectu fuere : Jovi ac Junoni unum ; alterum Neptuno ac Minervæ ; tertium Marti ac Veneri_.* Les Muses étaient regardées comme les sœurs de Vénus et se plaisaient en sa compagnie : [GREEK], dit Thémistius.*
+Ces Dieux s'appelaient Σύνναοι, parce qu'ils étaient adorés dans les mêmes Temples ; Σύμβωμοι, parce qu'ils participaient aux mêmes Autels ; Σύνθρονοι, Πάρεδροι, parce qu'ils étaient assis l'un à côté de l'autre ; les Dieux, en effet, étaient souvent représentés assis ; témoin la critique que fit l'Architecte Apollodore de la grandeur des Statues placées dans le Temple de Vénus et de Rome. _Voyez_ ce que j'en ai dit, _page_ 245. Πάρεδροι pourrait aussi signifier des Dieux dont les Statues sont près l'une de l'autre ; car Ἔδραι signifie des Statues dans Eschyle* et ailleurs. Cependant on n'entendait communément par ce mot que l'égale autorité dont jouissaient ces Dieux. Aussi Gisbert Cuper* et Ezechiel Spanheim* me semblent avoir eu tort de prétendre que les Dieux Πάρεδροι ou _Adsessores_ étaient d'un rang inférieur, tandis que les Dieux Σύνθρονος étaient égaux en dignité. Pindare appelle Bacchus Πάρεδρος de Cérès. Quand vous engendrâtes, dit ce Poète,* Bacchus à la longue chevelure, _qui est assis_ auprès de Cérès. Vénus et la Déesse Rome* étaient des Dieux Σύνναοι ou adorés dans le même Temple. Mars et Vénus l'étaient aussi : _sex pulvinaria in conspectu fuere : Jovi ac Junoni unum ; alterum Neptuno ac Minervæ ; tertium Marti ac Veneri_.* Les Muses étaient regardées comme les sœurs de Vénus et se plaisaient en sa compagnie : ἀδελϕαὶ γὰρ ἀλλήλων, καὶ ἀσπάζονται τὴν κοινωνίαν, dit Thémistius.*
 
 *) Æschyl in Supplicib. vers. 506.
 
@@ -3400,7 +3402,10 @@ Ces Dieux s'appelaient [GREEK], parce qu'ils étaient adorés dans les mêmes Te
 
 *) De Præstantiâ et Usu Numism. tom. 2. p. 335.
 
-*) Pindar. Isthm. Od. 7. vers. 3. [GREEK].
+*) Pindar. Isthm. Od. 7. vers. 3.  
+Χαλκοκρότου πάρεδρον  
+Δαμάτερος ἁνίκ᾽ ἐυρυχαίταν  
+Ἀντειλας Διόνυσον.
 
 *) Dio Cassius lib. 69. §. 4 pag. 1153 lin. 23.
 
@@ -3421,7 +3426,7 @@ _L. D. D. D._
 
 L. Calvius et Varius ont consacré à Vénus et à la Fortune Primigénie un autel et des Amours.
 
-Elle aimait beaucoup Hespérus, que les Grecs appelaient [GREEK] avant le lever du Soleil, et les Latins Lucifer. On le nommait aussi Etoile de Vénus. Cette Etoile était favorable aux jeunes mariés ; quand elle commençait à paraître, on conduisait la nouvelle épouse à la maison de son mari.
+Elle aimait beaucoup Hespérus, que les Grecs appelaient Φωστϕόρος avant le lever du Soleil, et les Latins Lucifer. On le nommait aussi Etoile de Vénus. Cette Etoile était favorable aux jeunes mariés ; quand elle commençait à paraître, on conduisait la nouvelle épouse à la maison de son mari.
 
 _Vesper adest, Juvenes, consurgite. Vesper Olympo_  
 _Expectata diu vix tandem lumina tollit._  
@@ -3432,11 +3437,11 @@ _Jam veniet virgo, jam dicetur Hymenæus._*
 
 L'Hyménée ne doit pas être passé sous silence. Je ne dois pas omettre non plus Tychon, Orthanès et Priape, dont je me serais abstenu de parler, si je n'eusse craint le reproche de n'avoir pas connu ces Dieux.
 
-Je ne m'étendrai point sur l'Hyménée, il est trop connu. A l'égard de Tychon, c'était, selon quelques-uns, un perit Dieu, parmi les Dieux d'un rang inférieur. C'était une Divinité du peuple, dont le crédit était très-borné, comme on le voit dans une Epigramme de Perses, qu'on lit _page_ 175 de l'Anthologie Grecque de Constantin Céphalas, donnée par feu M. Reiske. Tychon était aussi regardé par quelques autres, comme Mercure, et par d'autres encore, comme une Divinité de la suite de Vénus. Hésychius l'assure positivement : [GREEK]. La raison qui avait fait donner ce nom à Mercure et à un Dieu de la suite de Vénus, me paraît sensible. [GREEK] signifie la fortune, la bonne fortune. Or, on sait que Mercure présidait aux gains inespérés, et que la bonne fortune en amour doit être du goût de Vénus. D'autres prétendaient que Tychon était Priape lui-même.*
+Je ne m'étendrai point sur l'Hyménée, il est trop connu. A l'égard de Tychon, c'était, selon quelques-uns, un perit Dieu, parmi les Dieux d'un rang inférieur. C'était une Divinité du peuple, dont le crédit était très-borné, comme on le voit dans une Epigramme de Perses, qu'on lit _page_ 175 de l'Anthologie Grecque de Constantin Céphalas, donnée par feu M. Reiske. Tychon était aussi regardé par quelques autres, comme Mercure, et par d'autres encore, comme une Divinité de la suite de Vénus. Hésychius l'assure positivement : Τύχων, ἔνιοι τὸν Ἑρμῆν · ἄλλοι δὲ, τὸν περὶ τὴν Ἀϕροδίτην. La raison qui avait fait donner ce nom à Mercure et à un Dieu de la suite de Vénus, me paraît sensible. Τύχη signifie la fortune, la bonne fortune. Or, on sait que Mercure présidait aux gains inespérés, et que la bonne fortune en amour doit être du goût de Vénus. D'autres prétendaient que Tychon était Priape lui-même.*
 
 *) Diodor. Sicul. lib. 4. § 6 pag. 252.
 
-Orthanès ne devait pas moins plaire à cette Déesse. Il était de sa suite et de la dépendance de Priape, comme le dit le Scholiaste de Lycophron* : [GREEK]. Car c'est ainsi qu'il faut lire et non point [GREEK] qui ne fait aucun sens. Ce Scholiaste l'explique très-bien, lorsqu'il ajoute [GREEK].* [GREEK] signifie impudique, et vient de [GREEK] _arrigere_. Il est bien étonnant, après cela, que Canter, Meursius et Potter, qui ont donné des Editions de Lycophron, ne se soient point aperçu de cette faute, non plus que de celle de Lycophron, où il faut lire aussi [GREEK], au lieu d'[GREEK]. S'il pouvait encore rester quelque doute, Hésychius suffirait pour le lever. [GREEK]. Orthanès est un des Dieux soumis à Priape, _arrectam et ipse habens mentulam_.
+Orthanès ne devait pas moins plaire à cette Déesse. Il était de sa suite et de la dépendance de Priape, comme le dit le Scholiaste de Lycophron* : ἔστι δὲ και Ὀρθανης δαιμων πριαπώδης παρὰ τῃ Ἀϕροδίτῃ. Car c'est ainsi qu'il faut lire et non point Ὀρθάγης qui ne fait aucun sens. Ce Scholiaste l'explique très-bien, lorsqu'il ajoute τὸν Κατωϕερῆ, παρὰ τὸ ὀρθιᾳν.* Ὀρθανης signifie impudique, et vient de ὁρθιᾷν _arrigere_. Il est bien étonnant, après cela, que Canter, Meursius et Potter, qui ont donné des Editions de Lycophron, ne se soient point aperçu de cette faute, non plus que de celle de Lycophron, où il faut lire aussi Ὀρθανην, au lieu d'Ὀρθάγην. S'il pouvait encore rester quelque doute, Hésychius suffirait pour le lever. Ὀρθάνης, τῶν ὑπὸ τὸν Πρίαπόν ἐστι θεῶν, καὶ ἀυτὸς ἐντεταμενον ἔχων ἀιδοῖον. Orthanès est un des Dieux soumis à Priape, _arrectam et ipse habens mentulam_.
 
 *) Lycophronis Scholiast. ad Alexandram vers. 938 pag. 64. col. 1 lin. 8.
 
@@ -3450,7 +3455,7 @@ Il faut mettre aussi dans le même rang la Déesse _Pertunda_, laquelle, comme s
 
 Génétyllis* était une Déesse de la Compagnie de Vénus, Auteur de la Génération. Son nom vient de la génération des enfants. Il y avait plusieurs Déesses de ce nom, dit Pausanias,* et l'on voyait leurs Statues au Promontoire Colias.
 
-*) Suidas voc. [GREEK].
+*) Suidas voc. Γενετυλλίς.
 
 *) Pausanias Attic. sive lib. 1. cap. 1. pag. 5.
 
@@ -3473,7 +3478,7 @@ _Di ch' ella aveva il bel fianco succinto._*
 
 *) Gierusalemme Liberata Canto 16. stanc. 25.
 
-Ce Ceste enchanteur rendit à Junon les grâces touchantes qui avoient autrefois captivé le cœur de Jupiter, et ce Dieu sentit rallumer une flamme éteinte ; et ce fut par la vertu de ce même Ceste qu'Harmonie,* devenue sensible, chercha pour époux Cadmus qu'elle venait de fuir. Delà ces expressions si familières à Nonnus,* [GREEK] _agitavit Cesto_. [GREEK]* ; l'amour vous-a-t-il fait sentir les coups de son Ceste ? Dans un autre endroit, ce Ceste régit* les Amours [GREEK]. Homère, dit Plutarque,* instruit, par cette fable de Vénus, les personnes attentives qu'une musique efféminée, des chansons et des discours lubriques, corrompent la jeunesse, la rendent efféminée et lui font aimer le luxe, la mollesse et le commerce des femmes.
+Ce Ceste enchanteur rendit à Junon les grâces touchantes qui avoient autrefois captivé le cœur de Jupiter, et ce Dieu sentit rallumer une flamme éteinte ; et ce fut par la vertu de ce même Ceste qu'Harmonie,* devenue sensible, chercha pour époux Cadmus qu'elle venait de fuir. Delà ces expressions si familières à Nonnus,* ἤλασε Κεστῷ _agitavit Cesto_. Ἔρως ἐπεμάσπε Κεστῷ* ; l'amour vous-a-t-il fait sentir les coups de son Ceste ? Dans un autre endroit, ce Ceste régit* les Amours Πόθων ἰθύντορι Κεστῷ. Homère, dit Plutarque,* instruit, par cette fable de Vénus, les personnes attentives qu'une musique efféminée, des chansons et des discours lubriques, corrompent la jeunesse, la rendent efféminée et lui font aimer le luxe, la mollesse et le commerce des femmes.
 
 *) Nonnus Dionysiacor. lib. 4. vers. 177 et _seq._
 
@@ -3713,7 +3718,7 @@ Martialis Epigrammata cum Notis ad usum Delphini. Amstelod. 1701. _in_-8°.
 
 Maximi Tyrii Dissertationes. Græc. et Lat. Londini. 1740. _in_-4°.
 
-Melampus [GREEK]. Ad calcem Aristotelis Francofurtani.
+Melampus περὶ παλμῶν Μανπκή. Ad calcem Aristotelis Francofurtani.
 
 Mémoires de l'Académie des Inscriptions et Belles-Lettres. _in_-4°. 37 vol.
 
@@ -3833,7 +3838,7 @@ Theocriti quæ supersunt, Græce, cum Notis Joh. Toupii et Th. Warton. Oxonii. _
 
 Theodori Prodromi Rhodantes et Dioclis Amorum, Libri 9. Græc. et Lat. Parisiis. 1625. _in_-8°.
 
-[GREEK]. Parisiis. 1543. _in_-4°.
+Τὰ Θεολογούμενα τῆς Αριθμετικῆς. Parisiis. 1543. _in_-4°.
 
 Thucydidis de Bello Peloponnesiaco Libri 8. Græc. et Lat. cum Notis Dukeri. Amst. 1731. _in-fol._
 
