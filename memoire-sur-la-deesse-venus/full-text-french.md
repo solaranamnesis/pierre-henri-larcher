@@ -1073,7 +1073,7 @@ Des Auteurs prétendent que Campaspé,* maîtresse d'Alexandre, servit de model�
 *) Athen. Deipnosoph. lib. 13. c. 6. p. 590. F.
 
 _Si Venerem Cous nusquam posuisset Apelles,_  
-_Mersa sub æquoreis illa lateret aquis._
+_Mersa sub æquoreis illa lateret aquis._*
 
 *) Ovid. Ars Amator. lib. 3. vers. 401.
 
