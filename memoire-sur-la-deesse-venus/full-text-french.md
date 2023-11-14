@@ -470,7 +470,7 @@ Comme l'original grec ne se trouve que dans des ouvrages où il n'y a pas d'appa
 Ζωνίον ἐξ ἀνθέων ποικίλον, ὦ Παφίη, 
 Χρύσεα γράμματ᾽ ἔχον · δίολου δ᾽ ἐγέγραπτο.  
 Φίλει με  
-Καὶ μὴ λυπηθῇς, ἥντις ἔχῃ μ᾿ ἕτερος.
+Καὶ μὴ λυπηθῇς, ἥντις ἔχῃ μ᾿ ἕτερος.*
 
 *) Analecta Veterum Poetar. Græcor. Tom. 1. pag. 214. 16.
 
