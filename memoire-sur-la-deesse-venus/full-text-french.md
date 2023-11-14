@@ -531,7 +531,8 @@ Je finis ce que j'ai à dire sur Amathunte par observer que les premières Court
 *) Hesychius Voc. κάρπωστις.
 
 *) Ovid. Metamorphos. lib. 10. vets. 238.
- Argos en Cypre n'était remarquable que par le temple d'Apollon Erythius, où Vénus trouva le corps d'Adonis* après sa mort. Elle l'enleva, après avoir fait part de son amour à Apollon. Ce Dieu en eut pitié. Il la conduisit sur le rocher Leucas, d'où il lui conseilla de se précipiter. La Déesse le crut, se précipita du haut du rocher et se trouva guérie.
+
+Argos en Cypre n'était remarquable que par le temple d'Apollon Erythius, où Vénus trouva le corps d'Adonis* après sa mort. Elle l'enleva, après avoir fait part de son amour à Apollon. Ce Dieu en eut pitié. Il la conduisit sur le rocher Leucas, d'où il lui conseilla de se précipiter. La Déesse le crut, se précipita du haut du rocher et se trouva guérie.
 
 Golgos ou Golgi : car ce mot s'écrit des deux manières, ville de Cypre, renommée par le culte de Vénus. Pausanias* paraît dire que cette Déesse y était adorée avant qu'elle le fut à Paphos ; mais cet Auteur ne veut parler que du temple qu'éleva en cette dernière ville Agapénor, chef de la Colonie Grecque, qui s'y établit au retour de la guerre de Troie. Il est hors de doute que ce temple était postérieur à celui de Golgos. Meursius* s'y est trompé. Vénus tirait de cette ville* le surnom de Golgia.
 
