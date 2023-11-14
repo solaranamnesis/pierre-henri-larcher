@@ -1054,7 +1054,7 @@ _Et venit Rubro concha Erycina salo._*
 
 et à Martial :
 
-_Lævior, ô conchis, Galle, Cytheriacis._
+_Lævior, ô conchis, Galle, Cytheriacis._*
 
 On peut consulter les figures de l'Antiquité Expliquée par Dom de Montfaucon.
 
