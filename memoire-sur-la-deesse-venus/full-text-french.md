@@ -3088,7 +3088,7 @@ Au jeu de dez, rafle de six était le coup victorieux ; τρίς εξ νικητ
 
 *) Sue onius in Augusto cap. 71.
 
-Cela est conforme à la doctrine de Pythagore, qui donnait aux nombres* et aux figures de géométrie les noms des Dieux ; au deux celui de Vénus,* de Dioné, de Muchaia et de Cythérée, qui sont des surnoms de cette Déesse, dont j'ai fait mention plus haut. Le Carré lui était consacré,* et je me rappelle d'avoir remarqué en parlant d'Uranie,* qu'elle était représentée à Athènes par une pierre quadrangulaire,* près d'un Temple qu'elle avait dans le quartier appelé _les Jardins_. Le nombre cinq* s'appelait Vénus, Cythérée, Gamélia et Androgynia. Voici la raison qu'en apportaient les Pythagoriciens, selon l'auteur des _Theologoumena Arithmeticæ_. « Ils appellent Vénus le nombre cinq, parce que les nombres mâles et femelles sont tissus ensemble. On le nomme aussi, par la même raison, Nuptial et Androgyne.* » [GREEK]. Le même Auteur avait dit, un peu plus haut, _pag._ 25 : « le cinq... est appelé [GREEK] mariage, parce qu'il est composé du mâle et de la femelle. » [GREEK]. On voit aussi, dans Plutarque,* que le nombre cinq est nommé mariage, à cause de la ressemblance du nombre pair avec la femelle, et du nombre impair avec le mâle.
+Cela est conforme à la doctrine de Pythagore, qui donnait aux nombres* et aux figures de géométrie les noms des Dieux ; au deux celui de Vénus,* de Dioné, de Muchaia et de Cythérée, qui sont des surnoms de cette Déesse, dont j'ai fait mention plus haut. Le Carré lui était consacré,* et je me rappelle d'avoir remarqué en parlant d'Uranie,* qu'elle était représentée à Athènes par une pierre quadrangulaire,* près d'un Temple qu'elle avait dans le quartier appelé _les Jardins_. Le nombre cinq* s'appelait Vénus, Cythérée, Gamélia et Androgynia. Voici la raison qu'en apportaient les Pythagoriciens, selon l'auteur des _Theologoumena Arithmeticæ_. « Ils appellent Vénus le nombre cinq, parce que les nombres mâles et femelles sont tissus ensemble. On le nomme aussi, par la même raison, Nuptial et Androgyne.* » Καὶ Αϕροδίτην (πεντάδα) ὀνομάζουστι, διὰ τὸ ἐπιπλέκεστθαι ἀλλήλοις ἄῤῥηνα καὶ θῆλιν ἀριθμόν · κατὰ τὸν ἀυτὸν δὲ τρόπον, καὶ γαμηλίαν, καὶ ανδρογυνίαν. Le même Auteur avait dit, un peu plus haut, _pag._ 25 : « le cinq... est appelé γάμος mariage, parce qu'il est composé du mâle et de la femelle. » πεντὰς... γαμος καλείται, ὡς ἐξ ἀῤῥηνος καὶ θηλέος. On voit aussi, dans Plutarque,* que le nombre cinq est nommé mariage, à cause de la ressemblance du nombre pair avec la femelle, et du nombre impair avec le mâle.
 
 *) Plutarch de Iside et Osiride pag. 381 F.
 
@@ -3102,7 +3102,7 @@ Cela est conforme à la doctrine de Pythagore, qui donnait aux nombres* et aux f
 
 *) Photii Bibliothec. in Nicomachi Geraseni Excerptis Cod. 187 col. 464 lin. 46.
 
-*) [GREEK] pag. 33. Parisiis 1543 in-4°. M'entretenant un jour avec M. de Villoison sur les nombres de Pythagore, ce jeune Savant, qui est sur le point de nous donner une excellente édition de Phurnutus, ou plutôt Cornutus _de Naturâ Deorum_, me parla de ce passage, que je connaissais d'autant moins, que le livre, d'où il est tiré, ne m'est jamais tombé entre les mains. Comme je travaillais alors à ce Mémoire, je sentis à l'instant l'utilité dont il pouvait m'être, et j'en fis usage. _Cette note a été ajoutée après que le Prix m'a été adjugé_.
+*) τὰ Θεολογούμενα τῆς Αριθμητικῆς pag. 33. Parisiis 1543 in-4°. M'entretenant un jour avec M. de Villoison sur les nombres de Pythagore, ce jeune Savant, qui est sur le point de nous donner une excellente édition de Phurnutus, ou plutôt Cornutus _de Naturâ Deorum_, me parla de ce passage, que je connaissais d'autant moins, que le livre, d'où il est tiré, ne m'est jamais tombé entre les mains. Comme je travaillais alors à ce Mémoire, je sentis à l'instant l'utilité dont il pouvait m'être, et j'en fis usage. _Cette note a été ajoutée après que le Prix m'a été adjugé_.
 
 *) Plutarchus de E. apud Delphos, pag. 388 A.
 
@@ -3112,9 +3112,9 @@ Il est bon de remarquer que chez les Romains on portait aux noces cinq flambeaux
 
 Si les nombres étaient consacrés aux Dieux, les doigts de la main l'étaient pareillement. Le pouce était appelé le doigt de Vénus, comme on le voit dans l'ouvrage que Mélampus adresse* au Roi Ptolémée sur la Divination, par le moyen des Tressaillements. « Le tressaillement du pouce, dit-il, indique l'acquisition de grands biens, que sa femme et ses enfants donneront bien de la joie, car c'est le doigt de Vénus. »
 
-*) Melampus [GREEK]. Ce Traité se trouve dans l'édition toute grecque d'Aristote, donnée par Sylburge à Francfort, chez les Wechel, en 1587. in-4°.
+*) Melampus περὶ Παλμῶν Μαντική. Ce Traité se trouve dans l'édition toute grecque d'Aristote, donnée par Sylburge à Francfort, chez les Wechel, en 1587. in-4°.
 
-On avait aussi consacré à la Déesse quelques animaux, l'Aphron,* petit poisson de mer, qu'on appelle encore Aphrya ou Aphya, parce que la Déesse était née de l'écume, et qu'Aphron signifie de l'écume ; le Chrysophrys ou Dorade* ; le Phalaris, sorte d'oiseau de mer, dont le nom français m'est inconnu, parce que ce nom fait allusion au Phalle* ; une espèce de Héron* qu'on appelait [GREEK]. J'ai parlé amplement de l'Iunx _pag._ 56 et 57. L'Hirondelle* lui était consacrée, ainsi que la Tourterelle* blanche. La Colombe l'était aussi. Voici la raison qu'en donne Lutatius, ancien Scholiaste de Stace, qui l'avait puisée lui-même dans les anciens Mythologues. Vénus et Cupidon étant venus, dit-il,* dans une prairie, le disputèrent, à l'envi l'un de l'autre, à qui cueillerait le plus de fleurs. Cupidon l'emportait par son agilité et par l'usage de ses ailes ; mais la Nymphe Péristera vint au secours de la Déesse, et il fut vaincu. Ce petit Dieu indigné changea la Nymphe en Colombe. La Déesse la prit sous sa protection, et pour la consoler dans son malheur, elle voulut que cet oiseau lui fût consacré. On sçait que la colombe s'appelle en Grec [GREEK]. Quand les Grecs ne pouvaient rendre raison de quelque chose, ils avoient recours à des fables puériles. Le Scholiaste d'Eschyle me paraît plus sensé. Tous les oiseaux,* dit-il, ne font des petits qu'une fois l'an, la colombe en fait en tout tems. C'est par cette raison, ajoute-t-il, qu'elle est consacrée à Vénus. Elle est appelée, continue-t-il, [GREEK] parce qu'elle aime excessivement [GREEK] en mettant le [GREEK] par pléonasme. Le Scholiaste d'Apollonius prétend aussi,* d'après Apollodore dans son ouvrage sur les Dieux, qu'elle a été consacrée à la Déesse, à cause de sa lasciveté. Du reste, il apporte la même étymologie que le Scholiaste d'Eschyle.
+On avait aussi consacré à la Déesse quelques animaux, l'Aphron,* petit poisson de mer, qu'on appelle encore Aphrya ou Aphya, parce que la Déesse était née de l'écume, et qu'Aphron signifie de l'écume ; le Chrysophrys ou Dorade* ; le Phalaris, sorte d'oiseau de mer, dont le nom français m'est inconnu, parce que ce nom fait allusion au Phalle* ; une espèce de Héron* qu'on appelait Αϕροδίστιος. J'ai parlé amplement de l'Iunx _pag._ 56 et 57. L'Hirondelle* lui était consacrée, ainsi que la Tourterelle* blanche. La Colombe l'était aussi. Voici la raison qu'en donne Lutatius, ancien Scholiaste de Stace, qui l'avait puisée lui-même dans les anciens Mythologues. Vénus et Cupidon étant venus, dit-il,* dans une prairie, le disputèrent, à l'envi l'un de l'autre, à qui cueillerait le plus de fleurs. Cupidon l'emportait par son agilité et par l'usage de ses ailes ; mais la Nymphe Péristera vint au secours de la Déesse, et il fut vaincu. Ce petit Dieu indigné changea la Nymphe en Colombe. La Déesse la prit sous sa protection, et pour la consoler dans son malheur, elle voulut que cet oiseau lui fût consacré. On sçait que la colombe s'appelle en Grec περισττερά. Quand les Grecs ne pouvaient rendre raison de quelque chose, ils avoient recours à des fables puériles. Le Scholiaste d'Eschyle me paraît plus sensé. Tous les oiseaux,* dit-il, ne font des petits qu'une fois l'an, la colombe en fait en tout tems. C'est par cette raison, ajoute-t-il, qu'elle est consacrée à Vénus. Elle est appelée, continue-t-il, περισττερα parce qu'elle aime excessivement περιστστὰ ἐρῶστα en mettant le τ par pléonasme. Le Scholiaste d'Apollonius prétend aussi,* d'après Apollodore dans son ouvrage sur les Dieux, qu'elle a été consacrée à la Déesse, à cause de sa lasciveté. Du reste, il apporte la même étymologie que le Scholiaste d'Eschyle.
 
 *) Athen. Deipnosophist. lib. 7. cap. 21. pag. 325 B.
 
@@ -3134,8 +3134,7 @@ On avait aussi consacré à la Déesse quelques animaux, l'Aphron,* petit poisso
 
 *) Scholiast. Apollonii Rhodii ad lib. 3. pag. 189.
 
-Le char de Vénus était traîné par des 
-Cygnes :
+Le char de Vénus était traîné par des Cygnes :
 
 _Sic fata, levavit_  
 _Sidereos artus, Thalami que egressa superbum_  
@@ -3149,9 +3148,11 @@ _Molles agitat Venus Aurea Cycnos._*
 
 Remarquez aussi, je vous prie, Messieurs, l'Epithete d'Aurea, si familière aux Poètes, en parlant de cette Déesse, et sur laquelle je ne m'arrête pas, parce que je l'ai fait en plusieurs endroits de ce Mémoire et surtout _pag._ 256 _etc._
 
-Le char de Vénus n'était pas seulement trainé par des colombes et des cygnes, mais encore par des Passereaux, comme on le voit dans une Ode de Sappho, qui nous a été conservée par Denys d'Halicarnasse dans son Traité sur l'Arrangement des Mots, [GREEK].
+Le char de Vénus n'était pas seulement trainé par des colombes et des cygnes, mais encore par des Passereaux, comme on le voit dans une Ode de Sappho, qui nous a été conservée par Denys d'Halicarnasse dans son Traité sur l'Arrangement des Mots, περὶ Συνθέστεως Ὀνομάτων.
 
-[GREEK].
+Ἅρμ᾽ ὑποζεύξαστα, καλοὶ δὲ τ᾽ ἆγον  
+Ωκέες σττροῦθοι περὶ γᾶς μελαίνας  
+Πυκνὰ δινῦντες πτέρ᾽ ἀπ᾿ ὠραν᾽ ὠθέρος διὰ μέστστω.
 
 « De charmants Passereaux tiraient rapidement votre char du haut du ciel par le milieu de l'air. »
 
@@ -3177,13 +3178,13 @@ Les roses, de blanches qu'elles étaient, devinrent rouges, à l'occasion que je
 
 J'ai déjà remarqué que les Grecs, au défaut d'une bonne Physique, inventaient mille fables ingénieuses pour rendre raison des phénomènes qu'ils ne pouvaient expliquer.
 
-Le Philyra, peau fort déliée qui se trouve entre l'écorce des arbres et l'aubour, était consacré à Vénus, parce que ce terme comprend, dit Phurnutus,* celui de [GREEK] aimer. Cette peau servait à entre lasser les couronnes de fleurs, dont les Anciens faisaient un grand usage, comme l'ajoute le même Auteur. On connait aussi ce vers d'Horace.
+Le Philyra, peau fort déliée qui se trouve entre l'écorce des arbres et l'aubour, était consacré à Vénus, parce que ce terme comprend, dit Phurnutus,* celui de ϕιλεῖν aimer. Cette peau servait à entre lasser les couronnes de fleurs, dont les Anciens faisaient un grand usage, comme l'ajoute le même Auteur. On connait aussi ce vers d'Horace.
 
 _Displicent nexæ philyrâ coronæ._
 
 *) Phurnutus de Naturâ Deorum. c. 24. p. 199.
 
-Si l'on en croit encore le même* Phurnutus, on se gardait bien d'offrir du buis à la Déesse : [GREEK]. Thomas Gale traduit ainsi : _cavent autem, ne Veneri buxum offerant, expiantes suam salacitatem._ Je n'oserais décider lequel est le plus absurde, ou la leçon des imprimés, ou la traduction. Les variantes portent [GREEK]. Comme j'ignorais que le buis fût en horreur à Vénus, et comme je ne voyais pas le rapport qu'il y avait entre le buis [GREEK] et la lutte [GREEK], ou les fesses [GREEK], je lisais en partie d'après les Manuscrits, et en partie d'après mes conjectures : [GREEK]. On se garde bien d'offrir à la Déesse de l'Agnus Castus, à cause de l'aversion qu'elle a pour la stérilité. On sait que les feuilles de cet arbrisseau éteignent les ardeurs du tempérament, et que pour se conserver chastes, les femmes, qui devaient célébrer les Mystères de la Bonne Déesse, couchaient sur des feuilles de cet arbuste, qu'on appelait aussi [GREEK].
+Si l'on en croit encore le même* Phurnutus, on se gardait bien d'offrir du buis à la Déesse : τὸν δὲ πύξον ϕυλάττονται τῇ Θεῷ προστϕίρειν, ἀϕιερωστόμενοί πως ἐπ᾽ ἀυτοῖς τὴν πυγμήν. Thomas Gale traduit ainsi : _cavent autem, ne Veneri buxum offerant, expiantes suam salacitatem._ Je n'oserais décider lequel est le plus absurde, ou la leçon des imprimés, ou la traduction. Les variantes portent ἀϕοστιούμενοί πως ἐπ᾿ ἀυτοῖς τὴν πυγήν. Comme j'ignorais que le buis fût en horreur à Vénus, et comme je ne voyais pas le rapport qu'il y avait entre le buis πύξος et la lutte πυγμή, ou les fesses πυγή, je lisais en partie d'après les Manuscrits, et en partie d'après mes conjectures : τὸν δὲ λύγον ϕυλάττονται τῇ Θεῷ τροστϕέρειν, ἀϕοστιούμενοί πως ἐπ᾿ αὐτοῖς τὴν ἂγονιαν. On se garde bien d'offrir à la Déesse de l'Agnus Castus, à cause de l'aversion qu'elle a pour la stérilité. On sait que les feuilles de cet arbrisseau éteignent les ardeurs du tempérament, et que pour se conserver chastes, les femmes, qui devaient célébrer les Mystères de la Bonne Déesse, couchaient sur des feuilles de cet arbuste, qu'on appelait aussi Ἂγνος.
 
 *) Idem ibidem.
 
