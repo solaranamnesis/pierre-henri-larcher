@@ -3620,7 +3620,7 @@ Cassii Dionis Historiæ Romanæ quæ supersunt Græ. et Lat. cum Notis Reimari. 
 
 Dionysii Halicarnassensis Historia Romana. Græ. et Lat. cum Notis Jo. Hudson. Oxonii 1704. _in-fol._ 2 vol.
 
-_Dionysii Periegetæ Orbis descriptio. _Voyez_ le 4e. volume du N°. 62.
+Dionysii Periegetæ Orbis descriptio. _Voyez_ le 4e. volume du N°. 62.
 
 Alex. Donatus de Urbe Româ. _Voyez_ les Antiquités Latines de Grævius.
 
