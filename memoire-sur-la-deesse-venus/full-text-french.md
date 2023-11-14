@@ -1,6 +1,6 @@
 # Mémoire sur la Déesse Vénus,
 
-### Auquel l'Académie Royale des Inscriptions et Belles-Lettres a adjugé le Prix de la Saint Martin 1775.
+### Auquel l'Académie Royale des Inscriptions et Belles-Lettres a adjugé le Prix de la Saint Martin 1775.
 
 ## Par Pierre-Henri Larcher,
 
