@@ -84,7 +84,7 @@ Cette Déesse exerçait un empire souverain sur les Parques,* Κρατέεις �
 
 *) Procli Hymn. 1. in Venerem. vers. 7. etc.
 
-Elle était Vierge* ΚουραΦροδίτη. Julius Firmicus Maternus* parle aussi de Vénus Vierge, ce qui ne peut convenir qu'à Vénus Uranie ; mais comme cet Auteur ne paraît point en avoir eu connaissance, il ajoute tout de suite : _Si tamen Veneriplacuit aliquando Virginitas_.
+Elle était Vierge* Κουραφροδίτη. Julius Firmicus Maternus* parle aussi de Vénus Vierge, ce qui ne peut convenir qu'à Vénus Uranie ; mais comme cet Auteur ne paraît point en avoir eu connaissance, il ajoute tout de suite : _Si tamen Veneriplacuit aliquando Virginitas_.
 
 *) Id. ibid. vers. 1.
 
