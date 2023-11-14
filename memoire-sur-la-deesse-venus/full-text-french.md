@@ -1108,8 +1108,7 @@ On la représentait aussi portée sur le cou d'un Triton, comme le dit Nonnus au
 
 *) Nonnus Dionysiacorum, lib. 13. vers. 443.
 
-Il est inutile de parler des autres figures de Vénus Anadyomène qu'on trouve dans l'Antiquité Expliquée et ailleurs. Ce serait grossir ce Mémoire de choses qui ne donneraient que la peine de les copier. Mais je ne dois pas omettre que sur la base du Trône de Jupiter à Olympie, il y avait une* Vénus qui était, au sortir de la mer, reçue par l'Amour et couronnée par Pitho, la Déesse de la persuasion.
-Les Athéniens sont peut-être les premiers qui aient représenté Vénus avec cette Déesse. Consultez ci-dessus, _page 78_, ce que j'ai dit sur cette allégorie.
+Il est inutile de parler des autres figures de Vénus Anadyomène qu'on trouve dans l'Antiquité Expliquée et ailleurs. Ce serait grossir ce Mémoire de choses qui ne donneraient que la peine de les copier. Mais je ne dois pas omettre que sur la base du Trône de Jupiter à Olympie, il y avait une* Vénus qui était, au sortir de la mer, reçue par l'Amour et couronnée par Pitho, la Déesse de la persuasion. Les Athéniens sont peut-être les premiers qui aient représenté Vénus avec cette Déesse. Consultez ci-dessus, _page 78_, ce que j'ai dit sur cette allégorie.
 
 *) Pausanias Eliacorum prior. sive lib. 5. cap. 11. pag. 403.
 
