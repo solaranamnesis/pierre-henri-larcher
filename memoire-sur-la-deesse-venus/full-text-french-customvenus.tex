@@ -38,19 +38,20 @@
 \onehalfspacing
 
 \makeatletter % change only the display of \thepage, but not \thepage itself:
-\patchcmd{\ps@plain}{\thepage}{\color{white}{\thepage}}{}{}
+\patchcmd{\ps@plain}{\thepage}{\Fontlukas\bfseries\color{white}{\thepage}}{}{}
 \makeatother
+
+\color{white}
+
 \begin{document}
 \pagestyle{plain} % after changing a pagestyle command, it's necessary to invoke it explicitly
 \Fontlukas\bfseries
-\let\oldfootnoterule\footnoterule \renewcommand{\footnoterule}{\color{white}{\oldfootnoterule}}
 \AddToShipoutPictureBG*{\includegraphics[width=\paperwidth,height=\paperheight]{venus-background-title.jpeg}}
 
-\renewcommand\thefootnote{\Fontlukas\bfseries\color{white}{\arabic{footnote}}}
+\renewcommand\thefootnote{{\Fontlukas\bfseries\color{white}{\arabic{footnote}}}}
 \let\oldfootnote\footnote
-    \renewcommand{\footnote}[1]{\oldfootnote{\normalsize\Fontlukas\bfseries\color{white}#1}}
+    \renewcommand{\footnote}[1]{\oldfootnote{{\normalsize\Fontlukas\bfseries\color{white}#1}}}
 
-\color{white}
 \begin{titlepage} % Suppresses headers and footers on the title page
 	\centering % Centre everything on the title page
 	%\scshape % Use small caps for all text on the title page
@@ -107,7 +108,7 @@
 \setlength{\parskip}{1mm plus1mm minus1mm}
 \clearpage
 \Large
-\color{white}
+
 \AddToShipoutPictureBG{\includegraphics[width=\paperwidth,height=\paperheight]{venus-background.jpeg}}
 \paragraph{}
 \emph{L'Académie a proposé pour sujet du Prix, quels furent les Noms et les Attributs divers de Vénus chez les différents Peuples de la Grèce et de l'Italie ; quelles furent l'origine et les raisons de ces Attributs ; quel a été son Culte ; quels ont été les Statues, les Temples, les Tableaux célèbres de cette Divinité, et les Artistes qui se sont illustrés par ces Ouvrages.}
