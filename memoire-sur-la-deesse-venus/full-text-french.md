@@ -3049,7 +3049,6 @@ Je ne sais si Arnobe avoir encore en vue la même Pantomime, ou une autre plus i
 
 *) Idem ibid. lib. 4. pag. 151.
 
-
 *) Sanctus Augustinus de Civitate Dei lib. 7. cap. 26.
 
 *) Lampridius in Antonino Heliogabalo, tom. 1. pag. 800.
