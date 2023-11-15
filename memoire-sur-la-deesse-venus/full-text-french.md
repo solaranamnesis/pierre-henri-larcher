@@ -1718,7 +1718,7 @@ Il y avait à Athènes un Temple* de Vénus Psithyros _Susurratrix_, et la Dées
 
 *) Demosthen. contra Neæram, tom. 3. pag. 576. ex edit. Taylor. in-4°.
 
-Mars était l'Amant de Vénus. C'était sans doute par cette raison qu'on avait mis à Athènes dans un Temple de ce Dieu, deux Statues de cette Déesse.
+Mars était l'Amant de Vénus. C'était sans doute par cette raison qu'on avait mis à Athènes dans un Temple de ce Dieu,* deux Statues de cette Déesse.
 
 *) Pausan. Attic. sive lib. 1. cap. 8. pag. 20.
 
