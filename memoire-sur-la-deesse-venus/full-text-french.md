@@ -1963,7 +1963,7 @@ Stace lui avait donné par cette raison le nom de Lucrina, ou peut-être était-
 
 _Spectat et Icario nemorosus palmite Gaurus_  
 _..._  
-_Et Lucrina Venus._
+_Et Lucrina Venus._*
 
 *) Statius Sylvar. lib. 3. vers. 147.
 
