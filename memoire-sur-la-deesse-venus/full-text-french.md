@@ -3136,7 +3136,7 @@ Le char de Vénus était traîné par des Cygnes :
 
 _Sic fata, levavit_  
 _Sidereos artus, Thalami que egressa superbum_  
-_Limen, Amyclæos ad fræna citavit Olores._
+_Limen, Amyclæos ad fræna citavit Olores._*
 
 *) Statii Sylvar. lib. 1. Sylv. 2. vers. 140.
 
