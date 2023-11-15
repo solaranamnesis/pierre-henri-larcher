@@ -2146,7 +2146,7 @@ On prit de-là occasion de donner à cette Vénus le surnom de _Capitolina_, don
 
 Ce Temple était à l'entrée du Capitole, et c'est sans doute cette circonstance qui fit naître à Ovide l'idée de dire par une prolepse familière aux Poètes, en parlant des Sabins qui ouvraient les portes du Capitole, que Vénus fut le seul Dieu qui s'en aperçut :
 
-_Sola Venus portæ cecidisse repagula sensit._
+_Sola Venus portæ cecidisse repagula sensit._*
 
 *) Ovid. Metamorphos. lib. 14. vers. 783.
 
