@@ -3166,7 +3166,7 @@ Passons maintenant aux plantes qui étaient consacrées à la Déesse. J'ai parl
 
 *) Poetriarum Fragmenta ex Editione Wolfii p. 88.
 
-Les roses, de blanches qu'elles étaient, devinrent rouges, à l'occasion que je vais dire. Vénus aimait Adonis et Mars aimait Vénus. Celui-ci, qui était jaloux, et qui s'imaginait que la mort de son rival mettrait fin à cet amour, le tua.* La Déesse indignée de ce meurtre, se jeta sur des roses, sans se donner le temps de prendre sa chaussure. Leurs épines la piquèrent, et l'Ichor* qui sortit de ses piqures teignit la rose, et lui donna la couleur et l'odeur qu'elle a actuellement. D'autres disent que dans un festin qui se donna au ciel, et où l'on but beaucoup de Nectar, l'Amour en dansant renversa, d'un coup d'aile, un cratère de Nectar, et que cette liqueur étant tombée sur terre, donna à la rose la couleur qu'on lui voit à présent.
+Les roses, de blanches qu'elles étaient,* devinrent rouges, à l'occasion que je vais dire. Vénus aimait Adonis et Mars aimait Vénus. Celui-ci, qui était jaloux, et qui s'imaginait que la mort de son rival mettrait fin à cet amour, le tua.* La Déesse indignée de ce meurtre, se jeta sur des roses, sans se donner le temps de prendre sa chaussure. Leurs épines la piquèrent, et l'Ichor* qui sortit de ses piqures teignit la rose, et lui donna la couleur et l'odeur qu'elle a actuellement. D'autres disent que dans un festin qui se donna au ciel, et où l'on but beaucoup de Nectar, l'Amour en dansant renversa, d'un coup d'aile, un cratère de Nectar, et que cette liqueur étant tombée sur terre, donna à la rose la couleur qu'on lui voit à présent.
 
 *) Geoponicorum lib. 11. cap. 17. pag. 312.
 
