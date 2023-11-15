@@ -2347,8 +2347,7 @@ Pompée fit construire le premier Théâtre permanent* qu'il y ait eu à Rome, e
 
 *) Plutarch. in Pompeio, pag. 655. D.
 
-César fit vœu, peu avant la bataille de Pharsale,* d'élever à Rome un Temple à Vénus Victorieuse, s'il remportait la victoire. Il accomplit son vœu ; mais comme ce Temple portait aussi le nom de Venus _Genetrix_, j'en parlerai à cet Article. Le même Prince donna à cette bataille pour mot du Guet Vénus Nicéphoros,*
-Victorieuse ; mais depuis, à la bataille de Cordoue* contre le jeune Pompée, il donna simplement _Vénus_ pour mot du Guet.
+César fit vœu, peu avant la bataille de Pharsale,* d'élever à Rome un Temple à Vénus Victorieuse, s'il remportait la victoire. Il accomplit son vœu ; mais comme ce Temple portait aussi le nom de Venus _Genetrix_, j'en parlerai à cet Article. Le même Prince donna à cette bataille pour mot du Guet Vénus Nicéphoros,* Victorieuse ; mais depuis, à la bataille de Cordoue* contre le jeune Pompée, il donna simplement _Vénus_ pour mot du Guet.
 
 *) Appian. de Bellis Civilibus, lib. 2. pag. 770.
 
