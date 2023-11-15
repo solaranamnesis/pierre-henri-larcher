@@ -1186,7 +1186,7 @@ Il faut joindre à ces Vénus, les Vénus Acræa, ainsi nommées, parce que leur
 
 *) Eustath. in Homeri Odyss. lib. 1. tom. 3. pag. 1403. lin. 64.
 
-J'ai parlé d'un Temple de Vénus Acræa à l'occasion du culte rendu à cette Déesse dans l'Isle de Cypre. Hésychius* en nomme un autre à Argos. Il y en avait un troisième à Trœzene car Sylburge a très-bien vu qu'il falloir lire ἀκραία au lieu d'Αστκραία. Il y en avait un autre à Cnide,* et c'était le fécond Temple qu'a voit la Dé elfe en cette Ville.
+J'ai parlé d'un Temple de Vénus Acræa à l'occasion du culte rendu à cette Déesse dans l'Isle de Cypre. Hésychius* en nomme un autre à Argos. Il y en avait un troisième à Trœzene car Sylburge a très-bien vu qu'il falloir lire ἀκραία au lieu d'Αστκραία. Il y en avait un autre à Cnide,* et c'était le fécond Temple qu'a voit la Déesse en cette Ville.*
 
 Le plus ancien Temple de la Déesse à Cnide* était celui de Vénus Doritis, ou plutôt, de Vénus Doris ; car je pense qu'il faut lire Δωρίδος dans le passage de Pausanias ; de Vénus Doris, c'est-à-dire, Dorienne. On sait que Cnide* était une colonie des Lacédémoniens, qui étaient Doriens. L'Abbé Gédoyn, Traducteur de Pausanias, assure que cette Vénus est appelée Doris par Tatien ; mais cet Auteur n'en dit pas un mot.
 
