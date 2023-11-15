@@ -8,7 +8,7 @@
 \usepackage[T1]{fontenc}
 % Load encoding definitions (after font package)
 \usepackage{textalpha}
-\usepackage{color}
+\usepackage[dvipsnames]{xcolor}
 
 \usepackage{eso-pic,graphicx}
 \usepackage[top=55mm, bottom=55mm, outer=22mm, inner=22mm]{geometry}
@@ -40,19 +40,19 @@
 \onehalfspacing
 
 \makeatletter % change only the display of \thepage, but not \thepage itself:
-\patchcmd{\ps@plain}{\thepage}{\Fontlukas\bfseries\color{white}{\thepage}}{}{}
+\patchcmd{\ps@plain}{\thepage}{\Fontlukas\bfseries\color{Goldenrod}{\thepage}}{}{}
 \makeatother
 
-\color{white}
+\color{Goldenrod}
 
 \begin{document}
 \pagestyle{plain} % after changing a pagestyle command, it's necessary to invoke it explicitly
 \Fontlukas\bfseries
 \AddToShipoutPictureBG*{\includegraphics[width=\paperwidth,height=\paperheight]{venus-background-title.jpeg}}
 
-\renewcommand\thefootnote{{\Fontlukas\bfseries\color{white}{\arabic{footnote}}}}
+\renewcommand\thefootnote{{\Fontlukas\bfseries\color{Goldenrod}{\arabic{footnote}}}}
 \let\oldfootnote\footnote
-    \renewcommand{\footnote}[1]{\oldfootnote{{\normalsize\Fontlukas\bfseries\color{white}#1}}}
+    \renewcommand{\footnote}[1]{\oldfootnote{{\normalsize\Fontlukas\bfseries\color{Goldenrod}#1}}}
 
 \begin{titlepage} % Suppresses headers and footers on the title page
 	\centering % Centre everything on the title page
