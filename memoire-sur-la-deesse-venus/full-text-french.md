@@ -1439,7 +1439,7 @@ Il y a dans le Médailler de Monseigneur le Duc d'Orléans une Médaille de Fabi
 _Scilicet ante omnes furor est insignis equarum_  
 _..._  
 _Illas ducit amor trans Gargara, transque sonantem_  
-_Ascanium : superant montes et flumina tranant._
+_Ascanium : superant montes et flumina tranant._*
 
 *) Orph. Hymn. 54. vers. 2.
 
