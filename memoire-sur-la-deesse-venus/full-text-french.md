@@ -2239,7 +2239,7 @@ _Inde Venus verso nomina corde tenet._
 
 *) Ovid. Fastor. lib. 4. vers. 157, _etc._
 
-On enterrait les Vestales en vie, rue Salaria, au-delà de la Porte Colline. C'est sans doute ce qui a engagé Onuphrius à conjecturer que ce Temple était en cette rue. Cette conjecture me paraît vraisemblable. Cependant il y avait dans l'intérieur du Cirque un Temple ou Chapelle de Vénus Verticordia* ; mais il peut se faire qu'il y eut à Rome deux Vénus de ce nom, comme il y avait deux Vénus Erycines. Quoi qu'il en soit, ce Temple fut élevé l'an 639 de Rome, si l'on en croit les Commentateurs de Valere Maxime. Il était dans le cinquième quartier. Sulpitia,* fille de Paterculus, et femme de Fulvius Flaccus,* fut élue sur cent femmes choisies pour faire la dédicace de la Statue de la Déesse, suivant que le prescrivaient les Livres des Sibylles.
+On enterrait les Vestales en vie, rue Salaria, au-delà de la Porte Colline. C'est sans doute ce qui a engagé Onuphrius à conjecturer que ce Temple était en cette rue. Cette conjecture me paraît vraisemblable. Cependant il y avait dans l'intérieur du Cirque un Temple ou Chapelle de Vénus Verticordia* ; mais il peut se faire qu'il y eut à Rome deux Vénus de ce nom, comme il y avait deux Vénus Erycines. Quoi qu'il en soit, ce Temple fut élevé l'an 639 de Rome, si l'on en croit les Commentateurs de Valere Maxime. Il était dans le cinquième quartier. Sulpitia,* fille de Paterculus, et femme de Fulvius Flaccus, fut élue sur cent femmes choisies pour faire la dédicace de la Statue de la Déesse, suivant que le prescrivaient les Livres des Sibylles.
 
 *) J'en parlerai à l'Article de Vénus _Murcia_ ou _Myrtea_.
 
