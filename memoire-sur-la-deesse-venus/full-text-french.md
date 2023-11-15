@@ -3001,7 +3001,7 @@ _Myrteas inter casas._
 _Nec Ceres, nec Bacchus absunt,_  
 _Nec Poetarum Deus._  
 _Te sinente, tota nox est_  
-_Pervigilanda cantibus._
+_Pervigilanda cantibus._*
 
 *) Plauti Curculio, act. 1. sc. 3 vers. 25.
 
