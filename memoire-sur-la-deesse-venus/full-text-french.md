@@ -2773,7 +2773,7 @@ Près de la ville de Mænacé,* qui n'était pas fort éloignée de Tartesse, en
 
 *) Aviani Ora maritima, vers. 437.
 
-Il y en avait un autre un peu au-dessus de Bathia,* ainsi que dans l'Isle d'Erythie, où était un Promontoire qui portait le nom de la Déesse. Cette Isle était consacrée à Vénus Marine.
+Il y en avait un autre un peu au-dessus de Bathia,* ainsi que dans l'Isle d'Erythie, où était un Promontoire qui portait le nom de la Déesse.* Cette Isle était consacrée à Vénus Marine.
 
 *) Plutarchi Apophthegmata. pag. 196. B.
 
