@@ -39,6 +39,8 @@
 \usepackage{setspace}
 \onehalfspacing
 
+% change color of text, example replace all \color{Goldenrod} with \color{lightgray}
+
 \makeatletter % change only the display of \thepage, but not \thepage itself:
 \patchcmd{\ps@plain}{\thepage}{\Fontlukas\bfseries\color{Goldenrod}{\thepage}}{}{}
 \makeatother
