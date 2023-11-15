@@ -2564,7 +2564,7 @@ _Quique aliis cavit, non cavet ipse sibi._
 _Illo sæpe loco desunt sua verba diserto :_  
 _Resque novæ veniunt, causa que agenda sui est._  
 _Hunc Venus e templis, quæ sunt confinia, ridet._  
-_Qui modo patronus, nunc cupit esse cliens._
+_Qui modo patronus, nunc cupit esse cliens._*
 
 Ce Forum, et par conséquent ce Temple, n'était pas loin de la Voie Sacrée. Ovide a dit* :
 
