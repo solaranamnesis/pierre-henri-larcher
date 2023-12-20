@@ -6,3 +6,5 @@ English - Plain Text
 English - PDF  
 
 venus-background-*.jpeg --- CC BY-SA 3.0 Solar Anamnesis; modified attribution Metropolitan Museum of Art, CC0, via Wikimedia Commons; Attribution 2.0 Generic shaireproductions.com; I Create Stuff, CC0, via Wikimedia Commons; Galico, CC BY-SA 3.0, via Wikimedia Commons; AnonMoos, Public domain, via Wikimedia Commons.
+
+blackandwhiteborder1.png --- CC BY-SA 4.0 Solar Anamnesis; modified attribution Cherubini, Luigi - Medea - Restoration Public Domain via Wikimedia Commons.
