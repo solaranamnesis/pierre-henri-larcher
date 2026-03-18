@@ -404,7 +404,7 @@ Soit que dans ces siècles reculés la Sculpture fut inconnue, soit qu'on n'osâ
 
 *) Tacit. Historiatum, lib. 2. §. 3.
 
-Chacun offrait* en cette Ville des victimes selon son goût ; mais l'on choisissait les mâles, et l'on consultait avec confiance les entrailles des Boucs. Il était défendu de répandre du sang sur son Autel, et l'on n'y allumait qu'un feu pur. Tacite, de qui j'emprunte ce récit, ajoute qu'il ne pleuvait jamais sur cet Autel, quoiqu'il fut à découvert. Pline* fait aussi la même remarque. Mais, dit le judicieux Polybe, à propos de pareilles fables, qu'on débitait sur les Statues de Diane Mindyas* à Bargylies, et de Vesta à Iassus, « Je regarde comme des puérilités, non seulement tout ce qui n'est pas dans l'ordre des possibles, mais encore tout ce qui n'est point dans celui des vraisemblables. »
+Chacun offrait* en cette Ville des victimes selon son goût ; mais l'on choisissait les mâles, et l'on consultait avec confiance les entrailles des Boucs. Il était défendu de répandre du sang sur son Autel, et l'on n'y allumait qu'un feu pur. Tacite, de qui j'emprunte ce récit, ajoute qu'il ne pleuvait jamais sur cet Autel, quoiqu'il fut à découvert. Pline* fait aussi la même remarque. Mais, dit le judicieux Polybe,* à propos de pareilles fables, qu'on débitait sur les Statues de Diane Mindyas* à Bargylies, et de Vesta à Iassus, « Je regarde comme des puérilités, non seulement tout ce qui n'est pas dans l'ordre des possibles, mais encore tout ce qui n'est point dans celui des vraisemblables. »
 
 *) Id. ibid.
 
